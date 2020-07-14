@@ -12,12 +12,13 @@ La base de datos tiene una licencia abierta (GNU) con el fin de que cualquiera p
 ### Créditos 
 
 Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa Michelis, Jessica Rodríguez, Marianne Teixido.
+
 Programación: Marianne Teixido y Jessica Rodríguez.
+
 Traducción al portugués: Mariana Carvalho.
 
 
-
-Por el momento la base de datos se encuentra en disponible en el siguiente link [Base de datos](https://docs.google.com/document/d/1mtdZueD4sV1sg4j4XWx-84YZrhAa7f1KGV3CMJ3phGM/edit#).
+Por el momento este sitio se encuentra en construcción, por lo que podrás acceder la base de datos en el siguiente link [Base de datos](https://docs.google.com/document/d/1mtdZueD4sV1sg4j4XWx-84YZrhAa7f1KGV3CMJ3phGM/edit#).
 
 
 ### Contacto
