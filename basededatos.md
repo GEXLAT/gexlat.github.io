@@ -7,13 +7,19 @@ layout: default
 ### Argentina 
 
 
-[Laura Andel](http://www.lauraandel.com)
+Laura Andel
+
 Compositora - Artista sonora / Composer - Sound artist
+
+[http://www.lauraandel.com](http://www.lauraandel.com)
+
 
 
 Mariela Arzadun
-[dcloud.com/florconvenashttps://soun](dcloud.com/florconvenashttps://soun)
+
 Compositora - Música electrónica / Composer (electronic music)
+
+[https://soundcloud.com/florconvenas](https://soundcloud.com/florconvenas)
 
 
 
