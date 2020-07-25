@@ -7,7 +7,7 @@ layout: default
 ### Argentina 
 
 
-[Laura Andel] (http://www.lauraandel.com)
+[Laura Andel](http://www.lauraandel.com)
 Compositora - Artista sonora / Composer - Sound artist
 
 
