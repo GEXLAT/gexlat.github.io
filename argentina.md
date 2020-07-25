@@ -1,3 +1,6 @@
+---
+layout: default
+---
 
 
 Laura Andel  
@@ -65,13 +68,6 @@ Compositora - Baterista
 Evelyn Frosini  
 Compositora - Diseñadora de sonido   
 [https://evelynfrosini.com](https://evelynfrosini.com)  
-
-
-
-
-
-
-
 
 
 

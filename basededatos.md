@@ -7,6 +7,7 @@ layout: default
 
 ### [Argentina](./argentina.html)
 
+### [Bolivia](./bolivia.html)
 
 
 
