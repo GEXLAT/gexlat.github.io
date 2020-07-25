@@ -70,6 +70,117 @@ Compositora - Diseñadora de sonido
 [https://evelynfrosini.com](https://evelynfrosini.com)  
 
 
+Rosa Nolly  
+Saxofonista - Compositora  
+[https://www.facebook.com/rosa.nolly.bustos](https://www.facebook.com/rosa.nolly.bustos)
+
+
+Cecilia Quinteros  
+Improvisadora - Chelista  
+[http://ceciliaquinteros.com/](http://ceciliaquinteros.com/)  
+
+
+Alma Laprida  
+Compositora - Improvisadora - Artista sonora  
+[www.almalaprida.com.ar ](www.almalaprida.com.ar)
+
+
+Agustina Crespo  
+Compositora - Música de cámara y vocal  
+[http://agustinacrespo.com/esp/](http://agustinacrespo.com/esp/)  
+
+
+Rocío Pérez Belarra  
+Improvisadora - Creadora en imagen y sonido - Arpista  
+[https://vimeo.com/user2160147](https://vimeo.com/user2160147)  
+
+
+Florencia Curci  
+Artista sonora - Curadora - baterista  
+[https://florenciacurci.com/](https://florenciacurci.com/)  
+
+
+Guillermina Etkin  
+Compositora - Pianista/Sintetista  
+[http://www.guillerminaetkin.com.ar/](http://www.guillerminaetkin.com.ar/)  
+[https://soundcloud.com/guillerminaetkin](https://soundcloud.com/guillerminaetkin)  
+
+
+Maia Koenig  
+Electrónica DIY - 8-bit music- Experimental  
+[https://soundcloud.com/rrayen](https://soundcloud.com/rrayen)  
+[https://maiakoenig.bandcamp.com/](https://maiakoenig.bandcamp.com/)  
+
+
+Analía Bazán (aka Margo Sol)  
+Electrónica DIY - Sintetizadores - Obra Sonora  
+[http://cataratadecablesplug.tumblr.com](http://cataratadecablesplug.tumblr.com)  
+[http://cataratadecablesplug.bandcamp.com](http://cataratadecablesplug.bandcamp.com)  
+
+
+Patricia Martínez  
+Compositora - Artista interdisciplinaria - Pianista  
+[http://patriciamartinez.com.ar/bio/](http://patriciamartinez.com.ar/bio/)  
+
+
+Agostina Yacosa  
+Compositora  
+[https://soundcloud.com/cancionescongeladas](https://soundcloud.com/cancionescongeladas)  
+
+
+Romina Casile  
+Artista visual y sonora.  
+[http://www.rominacasile.com ](http://www.rominacasile.com)  
+
+
+Gabriela Areal  
+Compositora - cellista - improvisadora  
+[http://arealgabriela.tumblr.com](http://arealgabriela.tumblr.com)  
+[https://arealcabado.bandcamp.com/](https://arealcabado.bandcamp.com/)   
+[https://www.musicaexperimentaldecamara.com/](https://www.musicaexperimentaldecamara.com/)  
+
+
+Florencia Pajón Páez  
+Compositora  
+[https://soundcloud.com/user209110604](https://soundcloud.com/user209110604)  
+
+
+Cecilia Pereyra  
+Compositora  
+[https://soundcloud.com/cecilia-pereyra](https://soundcloud.com/cecilia-pereyra)  
+
+
+Julia Arbós  
+Compositora - Cantautora  
+[https://soundcloud.com/juliarbos](https://soundcloud.com/juliarbos)  
+[www.juliarbos.flavors.me](www.juliarbos.flavors.me)  
+
+
+
+
+ 
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
+
+
+
 
 
 [Regresar al índice por país](./basededatos.html)  
