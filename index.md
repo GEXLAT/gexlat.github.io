@@ -13,7 +13,7 @@ La base de datos tiene una licencia abierta (GNU) con el fin de que cualquiera p
 
 ### Créditos 
 
-Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa Michelis, Jessica Rodríguez, Marianne Teixido.
+Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa De Michelis, Jessica Rodríguez, Marianne Teixido.
 
 Programación: Marianne Teixido y Jessica Rodríguez.
 
