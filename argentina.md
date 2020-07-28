@@ -155,7 +155,7 @@ Compositora - Cantautora
 [https://soundcloud.com/juliarbos](https://soundcloud.com/juliarbos)  
 [www.juliarbos.flavors.me](www.juliarbos.flavors.me)
 
-Natalia Perelman
+Natalia Perelman </br>
 Sonidista - Artista sonora
 [https://soundcloud.com/natalia-perelman/sets](https://soundcloud.com/natalia-perelman/sets)
 
