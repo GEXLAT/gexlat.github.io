@@ -63,7 +63,7 @@ Baterista - Compositora - Polvö - Pós-rock - Experimental
 #### ÉRICA  
 Composição - Synthwave - Techno  
 [http://erica.bandcamp.com](http://erica.bandcamp.com)  
-[http://www.soundcloud.com/ericaalves] (http://www.soundcloud.com/ericaalves)
+[http://www.soundcloud.com/ericaalves](http://www.soundcloud.com/ericaalves)  
 Instagram: @ericaalvesmusic  
 Facebook: @ericaalvesmusic  
 
