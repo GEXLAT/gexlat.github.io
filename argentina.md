@@ -3,7 +3,7 @@ layout: default
 ---
 
 
-Laura Andel  
+### Laura Andel  
 Compositora - Artista sonora / Composer - Sound artist  
 [http://www.lauraandel.com](http://www.lauraandel.com)  
 
