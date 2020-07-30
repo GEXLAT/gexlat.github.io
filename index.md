@@ -1,4 +1,4 @@
-## [Género Experimentación Latinoamérica]
+## [Génerx Experimentación Latinoamérica]
 
 Este sitio contiene una base de datos que incluye mujeres, lesbianas, trans, intersex, personas de género fluido y otras disidencias que experimentan con sonido en Latinoamérica.
 
