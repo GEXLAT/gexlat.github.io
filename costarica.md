@@ -7,7 +7,9 @@ layout: default
 [Inicio](./)  
 
 
-  
+
+## COSTA RICA  
+
 __Susan Campos Fonseca__  
 Sound artist  
 [https://soundcloud.com/susan-campos-fonseca](https://soundcloud.com/susan-campos-fonseca)  

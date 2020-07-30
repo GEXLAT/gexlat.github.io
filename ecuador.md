@@ -8,6 +8,8 @@ layout: default
 
 
 
+## ECUADOR  
+
 __Pola__  
 Singer - Songwriter - Pop andino  
 
@@ -28,4 +30,4 @@ __Gabriela Yánez__
 __Jezie Zhunio__  
 Mapa sonoro - Experimentación - Pedagogía - Multidisciplinas: artes-literatura-psicología  
 [http://jezieart.weebly.com/](http://jezieart.weebly.com/)  
-www.medialabucuenca.org/mapa-sonoro/  
+[www.medialabucuenca.org/mapa-sonoro/](www.medialabucuenca.org/mapa-sonoro/)  

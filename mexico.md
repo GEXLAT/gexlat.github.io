@@ -8,6 +8,8 @@ layout: default
 
 
 
+## MÉXICO  
+
 __Ana Lidia Domínguez Ruiz__  
 Antropóloga sonora  
 [https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz](https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz)  
