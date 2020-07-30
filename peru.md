@@ -100,7 +100,8 @@ Compositora - Thereminista - Música electrónica
 [https://soundcloud.com/kamila-lunae](https://soundcloud.com/kamila-lunae)  
 
 #### GRISPerú—Grupo de Investigación Sonora del Perú  
-Está interesado en el análisis, estudio, registro del paisaje sonoro del Perú   [https://grisperu.com/](https://grisperu.com/)  
+Está interesado en el análisis, estudio, registro del paisaje sonoro del Perú  
+[https://grisperu.com/](https://grisperu.com/)  
 
 #### Maribel Tafur  
 [http://www.maribeltafur.com/](http://www.maribeltafur.com/)  
@@ -116,7 +117,7 @@ Está interesado en el análisis, estudio, registro del paisaje sonoro del Perú
 
 
 
-  
+
 [Regresar al índice por país](./basededatos.html)  
 
 [Inicio](./)  

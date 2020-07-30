@@ -220,7 +220,7 @@ Arte Sonoro - Audiovisual - Experimentación Sonora
 [https://alinamaldonado.bandcamp.com/](https://alinamaldonado.bandcamp.com/)  
 
 #### Jessica A. Rodríguez  
-Video - Código - Sonido - Literatura
+Video - Código - Sonido - Literatura  
 [https://vimeo.com/jessicaarinne](https://vimeo.com/jessicaarinne)  
 [http://andamio.in/](http://andamio.in/)  
 
@@ -235,7 +235,7 @@ Video - Código - Sonido - Literatura
 
 
 
-  
+
 [Regresar al índice por país](./basededatos.html)  
 
 [Inicio](./)  
