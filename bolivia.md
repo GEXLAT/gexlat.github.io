@@ -7,7 +7,9 @@ layout: default
 [Inicio](./)  
 
 
-  
+
+## BOLIVIA  
+
 __Canela Palacios y Adriana Aramayo (Dúo Abrelata)__  
 Compositoras  
 [https://myspace.com/duoabrelata](https://myspace.com/duoabrelata)  
