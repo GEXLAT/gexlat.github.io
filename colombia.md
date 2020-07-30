@@ -2,57 +2,63 @@
 layout: default
 ---
 
-#### Ana María Romano Gómez  
+Regresar al índice por país](./basededatos.html)  
+
+[Inicio](./)  
+
+
+
+__Ana María Romano Gómez__  
 [https://soundcloud.com/anamariaromano](https://soundcloud.com/anamariaromano)  
 
-#### Claudia Robles  
+__Claudia Robles__  
 [http://www.claudearobles.de/](http://www.claudearobles.de/)  
 
-#### Diana Astrid Ramírez Sánchez  
+__Diana Astrid Ramírez Sánchez__  
 Compositora - Artista sonora / Composer (electroacoustic music) - Bajista
 [https://soundcloud.com/dianitabass](https://soundcloud.com/dianitabass)  
 [https://vimeo.com/girlbass](https://vimeo.com/girlbass)  
 
-#### Natalia Valencia  
+__Natalia Valencia__  
 [https://soundcloud.com/nataliavalencia](https://soundcloud.com/nataliavalencia)  
 
-#### Camila Lopez  
+__Camila Lopez__  
 [https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
 
-#### Natalia Sánchez Montealegre  
+__Natalia Sánchez Montealegre__  
 
-#### Adriana Guzmán  
+__Adriana Guzmán__  
 
-#### Melissa Vargas Franco  
+__Melissa Vargas Franco__  
 Compositora | Intérprete | Improvisadora  
 [https://melissavargasmusica.com/](https://melissavargasmusica.com/)  
 
-#### Michele Abondano  
+__Michele Abondano__  
 [https://micheleabondano.com/](https://micheleabondano.com/)  
 
-#### Diana Medina Prieto  
+__Diana Medina Prieto__  
 Músico- Canto Lírico - Artista Sonora - Improvisadora - Productora - DJ  
 [https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura](https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura)  
 [https://www.facebook.com/diana.medina.501598](https://www.facebook.com/diana.medina.501598)  
 [https://dcmedina1543.wixsite.com/2204](https://dcmedina1543.wixsite.com/2204)  
 
-#### Alba Fernanda Triana  
+__Alba Fernanda Triana__  
 [http://www.albatriana.com/](http://www.albatriana.com/)  
 [http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html](http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html)
 
-#### Feli Cabrera López  
+__Feli Cabrera López__  
 [http://efeceele.com](http://efeceele.com)  
 
-#### Carolina Gamboa Hoyos  
+__Carolina Gamboa Hoyos__  
 [https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215](https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215)  
 
-#### Johanna María Carvajal  
+__Johanna María Carvajal__  
 
-#### Adriana Maria Gutierrez Grisales AKA : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA  
+__Adriana Maria Gutierrez Grisales AKA : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
 DJ - Profesora de música y DJs - Productora - Tecnologa en informatica musical - Coleccionista de musica en vinilo  
 www.arideejay.com  
 
-#### Margarita Ardila aka mandarinavozenoff  
+__Margarita Ardila aka mandarinavozenoff__  
 Maker Coordinadora y Tallerista en SONORARTEC LAB  
 Autora Editora de OVNI fanCine LINEAS DE CINEMA  
 Compositora en  AUDIOGRAFEMAS  
@@ -62,104 +68,104 @@ Compositora en  AUDIOGRAFEMAS
 [https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1](https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1)  
 [https://www.youtube.com/watch?v=8Y0zZYE11-E](https://www.youtube.com/watch?v=8Y0zZYE11-E)  
 
-#### Carolina Noguera  
+__Carolina Noguera__  
 [https://soundcloud.com/carolina-noguera-palau](https://soundcloud.com/carolina-noguera-palau)  
 
-#### Alexandra Cárdenas  
+__Alexandra Cárdenas__  
 [http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas](http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas)  
 
-#### Catalina Peralta  
+__Catalina Peralta__  
 [http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta](http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta)  
 
-#### Alba Lucía Potes  
+__Alba Lucía Potes__  
 [http://albapotes.com/index.htm](http://albapotes.com/index.htm)  
 
-#### Alexandra Gelis
+__Alexandra Gelis__
 [http://www.alexandragelis.com/](http://www.alexandragelis.com/)  
 
-#### Viviana Ramírez  
+__Viviana Ramírez__  
 [https://baulmed.bandcamp.com/track/bavl](https://baulmed.bandcamp.com/track/bavl)  
 
-#### Falon Cañón  
+__Falon Cañón__  
 
-#### Violeta Cruz  
+__Violeta Cruz__  
 [http://violetacruz.com/](http://violetacruz.com/)  
 
-#### Sylvia Jaimes  
+__Sylvia Jaimes__  
 [http://sylviajaimes.blogspot.com.ar/](http://sylviajaimes.blogspot.com.ar/)  
 
-#### Diana María Restrepo Restrepo  
+__Diana María Restrepo Restrepo__  
 [http://dianarestrepo.co/](http://dianarestrepo.co/)  
 
-#### Beatriz Eugenia Díaz  
+__Beatriz Eugenia Díaz__  
 [http://beatrizeugeniadiaz.tumblr.com/](http://beatrizeugeniadiaz.tumblr.com/)  
 
-#### Ana María Ruiz Valencia  
+__Ana María Ruiz Valencia__  
 [http://cargocollective.com/anamariaruiz](http://cargocollective.com/anamariaruiz)  
 
-#### Ximena Alarcón  
+__Ximena Alarcón__  
 [http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
 
-#### Isabel González  
+__Isabel González__  
 [https://soundcloud.com/isomoth](https://soundcloud.com/isomoth)  
 
-#### Luisa Fernanda Arias Niño  
+__Luisa Fernanda Arias Niño__  
 
-#### María Juliana Soto  
+__María Juliana Soto__  
 [http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
 
-#### Ángela Jiménez Arias  
+__Ángela Jiménez Arias__  
 [https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas](https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas)  
 
-#### Carmen Elvira Brigard  
+__Carmen Elvira Brigard__  
 carmenelvirabrigard@yahoo.com  
 
-#### Elizabeth Polanco Reyes  
+__Elizabeth Polanco Reyes__  
 [https://elizabethpolanco95.wordpress.com/](https://elizabethpolanco95.wordpress.com/)  
 
-#### Lina Bautista  
+__Lina Bautista__  
 [https://soundcloud.com/linalab](https://soundcloud.com/linalab)  
 
-#### Luza Quiceno Quiroga  
+__Luza Quiceno Quiroga__  
 Magíster en Artes Plásticas y Visuales - Artista Sonora  
 luza_quiceno@yahoo.es  
 [http://luzaquiceno.wix.com/luza](http://luzaquiceno.wix.com/luza)  
 [https://soundcloud.com/user-957016126](https://soundcloud.com/user-957016126)  
 [https://vimeo.com/luzaquiceno](https://vimeo.com/luzaquiceno)  
 
-#### Jaidy Diaz  
+__Jaidy Diaz__  
 Artista sonora  
 jaidydiaz@hotmail.com  
 [http://enlapuntadelalengu4.wixsite.com/misitio](http://enlapuntadelalengu4.wixsite.com/misitio)  
 
-#### Alexandra Calderón  
+__Alexandra Calderón__  
 alexandra@dokuma.tech  
 
-#### Jacqueline Ocampo Cruz  
+__Jacqueline Ocampo Cruz__  
 jandreita1@gmail.com  
 [http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
 
-#### Juliana Ortigoza Duràn  
+__Juliana Ortigoza Duràn__  
 Compositora  
 solesygirasoles4@hotmail.com  
 [https://soundcloud.com/juliana-ortigoza](https://soundcloud.com/juliana-ortigoza)  
 
-#### Laura V. Zapata Cortés  
+__Laura V. Zapata Cortés__  
 Compositora - Artista sonora - Improvisadora  
 laura.zapata1991@gmail.com  
 [https://soundcloud.com/laura-zapata-231093157](https://soundcloud.com/laura-zapata-231093157)  
 
-#### Jenny Maritza Ramírez Osorio (Jennitza)  
+__Jenny Maritza Ramírez Osorio (Jennitza)__  
 Compositora - Clarinetista - Diseñadora de sonido  
 [https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
 [https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/)  
 
-#### Cielo Vargas Gómez  
+__Cielo Vargas Gómez__  
 Doctora en Arte Público - Docente - Investigadora - Exploradora sonora
 [www.cielovargas.com](https://cielovargas.com)  
 [https://soundcloud.com/cielo-vg](https://soundcloud.com/cielo-vg)  
 
-#### Rossana Uribe Rodríguez (Medellín)  
+__Rossana Uribe Rodríguez (Medellín)__  
 Artista audiovisual - Gestora cultural - Productora sonora  
 Directora y productora del laboratorio multimedial ÉTER y de la Plataforma de Escuchas Auditum (y su festival la Semana de la Escucha)  
 [https://vimeo.com/rossaudiovision](https://vimeo.com/rossaudiovision)  
@@ -167,21 +173,21 @@ Directora y productora del laboratorio multimedial ÉTER y de la Plataforma de E
 [http://eter-lab.net/es/](http://eter-lab.net/es/)  
 [http://auditum.co/](http://auditum.co/)  
 
-#### Juanita Delgado Jaramillo  
+__Juanita Delgado Jaramillo__  
 Musico - Cantante - Compositora - Artista transdisciplinar  
 Magister en artes Vivas  
 [www.juanitadelgado.com](https://www.juanitadelgado.com/)  
 
-#### Natalia Trujillo Arbeláez  
+__Natalia Trujillo Arbeláez__  
 [https://natytrubh.wixsite.com/portafolio](https://natytrubh.wixsite.com/portafolio)  
 
-#### María A. “Mange” Valencia  
+__María A. “Mange” Valencia__  
 Saxofón - Clarinete soprano - Clarinete bajo - Improvisación  
 Universidad Javeriana (Bogotá)  
 Maestría en Artes Plásticas Electrónicas y del Tiempo Universidad de los Andes (Bogotá)  
 [https://mangevalencia.portfoliobox.net/](https://mangevalencia.portfoliobox.net/)  
 
-#### María La Marimbera  
+__María La Marimbera__  
 Marimba - Live Looping - Músicas Tradicionales  
 [https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed](https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed)  
 Twitter: @marialamarimbera  
@@ -191,7 +197,7 @@ Twitter: @marialamarimbera
 
 
 
-  
+
 [Regresar al índice por país](./basededatos.html)  
 
 [Inicio](./)  

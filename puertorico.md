@@ -2,27 +2,24 @@
 layout: default
 ---
 
-#### Angélica Negrón  
+[Regresar al índice por país](./basededatos.html)  
+
+[Inicio](./)  
+
+
+
+__Angélica Negrón__  
 Composer  
 [http://angelicanegron.com](http://angelicanegron.com)  
 [https://soundcloud.com/angelica-negron](https://soundcloud.com/angelica-negron)  
 
-#### Alexandra “Sandy” Buschman  
+__Alexandra “Sandy” Buschman__  
 [https://soundcloud.com/demonsleeper](https://soundcloud.com/demonsleeper)  
 
-#### Shanti Lalita  
+__Shanti Lalita__  
 Cellista - Improvisadora - Compositora  
 [https://shantilalita.bandcamp.com](https://shantilalita.bandcamp.com)  
 [https://soundcloud.com/lalitacello](https://soundcloud.com/lalitacello)  
 
-#### Jirasol Pereira  
-[https://soundcloud.com/jirasol-pereira/er-du-tryg](https://soundcloud.com/jirasol-pereira/er-du-tryg)  
-
-
-
-
-
-  
-[Regresar al índice por país](./basededatos.html)  
-
-[Inicio](./)  
+__Jirasol Pereira__  
+[https://soundcloud.com/jirasol-pereira/er-du-tryg](https://soundcloud.com/jirasol-pereira/er-du-tryg)   
