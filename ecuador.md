@@ -2,33 +2,30 @@
 layout: default
 ---
 
-#### Pola  
+[Regresar al índice por país](./basededatos.html)  
+
+[Inicio](./)  
+
+
+
+__Pola__  
 Singer - Songwriter - Pop andino  
 
-#### Imaizara Manzanillas  
+__Imaizara Manzanillas__  
 Cantautora autodidacta - Música callejera - Trova subreal  
 [https://www.facebook.com/Imaizara](https://www.facebook.com/Imaizara)  
 [https://www.youtube.com/channel/UCxM47KR5s3CprrLTdA1Y7ug?view_as=subscriber%20Manzanillas/](https://www.youtube.com/channel/UCxM47KR5s3CprrLTdA1Y7ug?view_as=subscriber%20Manzanillas/)  
 
-#### Andrea Fierro  
+__Andrea Fierro__  
 
-#### Emilia Bahamonde  
+__Emilia Bahamonde__  
 [https://soundcloud.com/sexores](https://soundcloud.com/sexores)  
 [https://sexores.bandcamp.com/](https://sexores.bandcamp.com/)  
 
-#### Gabriela Yánez  
+__Gabriela Yánez__  
 [https://soundcloud.com/gabyyanez/sets/listen-to-your-picture](https://soundcloud.com/gabyyanez/sets/listen-to-your-picture)  
 
-#### Jezie Zhunio  
+__Jezie Zhunio__  
 Mapa sonoro - Experimentación - Pedagogía - Multidisciplinas: artes-literatura-psicología  
 [http://jezieart.weebly.com/](http://jezieart.weebly.com/)  
 www.medialabucuenca.org/mapa-sonoro/  
-
-
-
-
-
-  
-[Regresar al índice por país](./basededatos.html)  
-
-[Inicio](./)  

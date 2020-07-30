@@ -2,108 +2,113 @@
 layout: default
 ---
 
-#### Valentina Villarroel  
+[Regresar al índice por país](./basededatos.html)  
+
+[Inicio](./)  
+
+
+
+__Valentina Villarroel__  
 DIY electronics  
 [http://valentinavillarroel.tumblr.com/](http://valentinavillarroel.tumblr.com/)  
 [https://valentinavillarroel1.bandcamp.co](https://valentinavillarroel1.bandcamp.co)  
 
-#### Amanda Irarrázabal  
+__Amanda Irarrázabal__  
 Contrabajista - Cantante - Improvisadora - Compositora  
 [https://soundcloud.com/amandugen](https://soundcloud.com/amandugen)  
 [http://www.panyrosasdiscos.net/amanda-irarrazabal/](http://www.panyrosasdiscos.net/amanda-irarrazabal/)  
 
-#### Mist Spectra / Humanfobia  
+__Mist Spectra / Humanfobia__  
 Cantante - Experimentación con música computarizada  
 [http://freemusicarchive.org/music/Mist_Spectra/](http://freemusicarchive.org/music/Mist_Spectra/)  
 
-#### Isidora Edwards  
+__Isidora Edwards__  
 Cellista - Improvisadora  
 [https://soundcloud.com/isidoraedwards](https://soundcloud.com/isidoraedwards)  
 [https://www.isidoraedwards.com/](https://www.isidoraedwards.com/)  
 
-#### Claudia González Godoy  
+__Claudia González Godoy__  
 [http://claudiagonzalez.cl/](http://claudiagonzalez.cl/)  
 
-#### Cecilia García-Gracia  
+__Cecilia García-Gracia__  
 Compositora - Pianista - Cantante  
 [https://soundcloud.com/cecigarcia1](https://soundcloud.com/cecigarcia1)  
 [https://soundcloud.com/ciudaded-s](https://soundcloud.com/ciudaded-s)  
 
-#### Karla Schuller  
+__Karla Schuller__  
 [https://karlaschuller.wordpress.com/](https://karlaschuller.wordpress.com/)  
 
-
-#### Ana María Estrada  
+__Ana María Estrada__  
 [http://cerosilencio.blogspot.cl/](http://cerosilencio.blogspot.cl/)  
 
-#### Mónica Sandoval Seguel  
+__Mónica Sandoval Seguel__  
 Soundscape - Sound art - Experimental  
 [https://soundcloud.com/absolutmodka](https://soundcloud.com/absolutmodka)  
 
-#### Alisú  
+__Alisú__  
 Producer - DJ  
 [https://soundcloud.com/alisu](https://soundcloud.com/alisu)  
 [www.alisu.cl](https://alisu.cl)  
 
-#### Valentina Montalvo aka Valesuchi  
+__Valentina Montalvo aka Valesuchi__  
 DJ - Producer  
 [https://soundcloud.com/valesuchi](https://soundcloud.com/valesuchi)  
 
-#### Corazón de Robota (Constanza Piña)  
+__Corazón de Robota (Constanza Piña)__  
 Anarquista electrónica  
 [https://corazonderobota.wordpress.com/](https://corazonderobota.wordpress.com/)  
 [https://soundcloud.com/corazonderobota](https://soundcloud.com/corazonderobota)  
 [https://vimeo.com/217620442](https://vimeo.com/217620442)  
 
-#### Caro Opazo  
+__Caro Opazo__  
 [https://carolinaopazo.hotglue.me/](https://carolinaopazo.hotglue.me/)  
 
-#### Lia Nadja  
+__Lia Nadja__  
 Singer - Multi-instrumentalist  
 [https://lianadja.bandcamp.com/](https://lianadja.bandcamp.com/)  
 
-#### Gisela Frick Hassenberg  
+__Gisela Frick Hassenberg__  
 [https://soundcloud.com/giselafrick](https://soundcloud.com/giselafrick)  
 
-#### Alejandra Pérez Nuñez aka elpueblodechina  
+__Alejandra Pérez Nuñez aka elpueblodechina__  
 [http://elpueblodechina.org/](http://elpueblodechina.org/)  
 
-#### Agnes Paz aka Criaturas Imperfectas  
+__Agnes Paz aka Criaturas Imperfectas__  
 [https://soundcloud.com/criaturas-imperfectas](https://soundcloud.com/criaturas-imperfectas)  
 
-#### NIñosindigo  
+__NIñosindigo__  
 [https://soundcloud.com/inpar](https://soundcloud.com/inpar)  
 
-#### Bárbara González  
+__Bárbara González__  
 [http://www.barbaragonzalezbarrera.com/](http://www.barbaragonzalezbarrera.com/)  
 
-#### Kamila Govorcin  
+__Kamila Govorcin__  
 
-#### Tamara Miller  
+__Tamara Miller__  
 [https://soundcloud.com/millertamara](https://soundcloud.com/millertamara)  
 
-#### Marea  
+__Marea__  
 [https://soundcloud.com/mareame](https://soundcloud.com/mareame)  
 
-#### Paula Merlo  
+__Paula Merlo__  
 [https://soundcloud.com/paula-merlo](https://soundcloud.com/paula-merlo)  
 
-#### Kinética  
+__Kinética__  
 [https://soundcloud.com/musicakinetica/sets/musica-para-montajes](https://soundcloud.com/musicakinetica/sets/musica-para-montajes)  
 
-#### Camila Moreno  
+__Camila Moreno__  
 [https://www.camila-moreno.com/musica](https://www.camila-moreno.com/musica)  
 
-#### Graciela Muñoz  
+__Graciela Muñoz__  
 
-#### Georgina Canifrú  
+__Georgina Canifrú__  
 [https://soundcloud.com/georginacanifru](https://soundcloud.com/georginacanifru)  
 
 
 
 
 
-  
+
 [Regresar al índice por país](./basededatos.html)  
 
 [Inicio](./)  

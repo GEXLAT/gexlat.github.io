@@ -2,40 +2,46 @@
 layout: default
 ---
 
-#### Adina Izarra  
+[Regresar al índice por país](./basededatos.html)  
+
+[Inicio](./)  
+
+
+
+__Adina Izarra__  
 [http://venezuela.microcircuitos.org/adina-izarra/](http://venezuela.microcircuitos.org/adina-izarra/)  
 
-#### Corina Lipavsky  
+__Corina Lipavsky__  
 [http://venezuela.microcircuitos.org/corina-lipavsky/](http://venezuela.microcircuitos.org/corina-lipavsky/)  
 
-#### Andrea Ludovic  
+__Andrea Ludovic__  
 [http://venezuela.microcircuitos.org/andrea-ludovic/](http://venezuela.microcircuitos.org/andrea-ludovic/)  
 
-#### Josefina Punceles de Benedetti  
+__Josefina Punceles de Benedetti__  
 [http://venezuela.microcircuitos.org/josefina-punceles-de-benedetti/](http://venezuela.microcircuitos.org/josefina-punceles-de-benedetti/)  
 
-#### Yoly Rojas  
+__Yoly Rojas__  
 [http://www.yolyrojas.com/](http://www.yolyrojas.com/)  
 
-#### Diana Arismendi  
+__Diana Arismendi__  
 [http://www.dianaarismendi.com/](http://www.dianaarismendi.com/)  
 
-#### Marianela Arocha  
+__Marianela Arocha__  
 
-#### Sylvia Constantinidis  
+__Sylvia Constantinidis__  
 
-#### Nacarid López  
+__Nacarid López__  
 [http://nacarid.com/](http://nacarid.com/)  
 [http://nacarid.com/category/sonidos-cat/](http://nacarid.com/category/sonidos-cat/)  
 [https://soundcloud.com/nacarid-lopez/](https://soundcloud.com/nacarid-lopez/)  
 
-#### María Emilia Pérez (Vermillion)  
+__María Emilia Pérez (Vermillion)__  
 [https://vermillionproject.bandcamp.com](https://vermillionproject.bandcamp.com)  
 [https://damballahdr.bandcamp.com/track/rite-of-abduction](https://damballahdr.bandcamp.com/track/rite-of-abduction)  
 [http://asimtria.org/netlabel/?p=476](http://asimtria.org/netlabel/?p=476)  
 [https://armenia-bizarreaudioarts.bandcamp.com/album/nullification-iii](https://armenia-bizarreaudioarts.bandcamp.com/album/nullification-iii)  
 
-#### Solfuria  
+__Solfuria__  
 Dúo de música experimental integrado por:  
 Mary Sol Casado (Percusión y voces)  
 Angie Gotopo (Cuerdas, voces y programación)  
