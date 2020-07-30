@@ -8,7 +8,7 @@ layout: default
 
 
 
-## URUAGUAY  
+## URUGUAY  
 
 __Sofia Scheps__  
 [https://vimeo.com/user39943897](https://vimeo.com/user39943897)  

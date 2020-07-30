@@ -58,7 +58,7 @@ __Johanna María Carvajal__
 
 __Adriana Maria Gutierrez Grisales AKA : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
 DJ - Profesora de música y DJs - Productora - Tecnologa en informatica musical - Coleccionista de musica en vinilo  
-www.arideejay.com  
+[www.arideejay.com](www.arideejay.com)  
 
 __Margarita Ardila aka mandarinavozenoff__  
 Maker Coordinadora y Tallerista en SONORARTEC LAB  
