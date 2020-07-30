@@ -6,12 +6,12 @@ Sus objetivos son: 1) generar un recurso para docentes, investigadorxs, programa
 
 Este es un relevamiento abierto y colectivo. Desde su creación, en 2015, hasta hoy, esta lista fue alimentada por decenas de personas anónimas. Si te parece que faltan nombres en la lista y querés colaborar, hacé click [aquí](https://docs.google.com/document/d/1mtdZueD4sV1sg4j4XWx-84YZrhAa7f1KGV3CMJ3phGM/edit#) para ingresar en el documento colaborativo abierto y sentite libre de agregarlos.
 
-La base de datos tiene una licencia abierta (GNU) con el fin de que cualquiera pueda utilizar, modifigecar y compartir la información que hay en ella libremente. 
+La base de datos tiene una licencia abierta (GNU) con el fin de que cualquiera pueda utilizar, modificar y compartir la información que hay en ella libremente.
 
 [Bases de datos](./basededatos.html)
 
 
-### Créditos 
+### Créditos
 
 Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa De Michelis, Jessica Rodríguez, Marianne Teixido.
 
@@ -23,4 +23,3 @@ Traducción al portugués: Mariana Carvalho.
 ### Contacto
 
 Escríbenos a gexlatinoamerica@gmail.com
-
