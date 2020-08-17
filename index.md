@@ -8,18 +8,19 @@ Este es un relevamiento abierto y colectivo. Desde su creación, en 2015, hasta 
 
 La base de datos tiene una licencia abierta (GNU) con el fin de que cualquiera pueda utilizar, modificar y compartir la información que hay en ella libremente.
 
-[Bases de datos](./basededatos.html)
+[Bases de datos](./basededatos.html). 
 
 
 ### Créditos
 
-Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa De Michelis, Jessica Rodríguez, Marianne Teixido.
+Equipo GEX: Emi Bahamonte Noriega, Mariana Carvalho, Alma Laprida, Vanessa De Michelis, Jessica Rodríguez, Marianne Teixido.  
 
-Programación: Marianne Teixido y Jessica Rodríguez.
+Programación: Marianne Teixido y Jessica Rodríguez.  
 
-Traducción al portugués: Mariana Carvalho.
+Traducción al portugués: Mariana Carvalho.  
+
 
 
 ### Contacto
 
-Escríbenos a gexlatinoamerica@gmail.com
+Escríbenos a gexlatinoamerica@gmail.com. 
