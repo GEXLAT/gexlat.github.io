@@ -1,7 +1,5 @@
 ## [Génerx Experimentación Latinoamérica]
 
-[Versión en Portugués](./indexpt.html)
-
 Este sitio contiene una base de datos que incluye mujeres, lesbianas, trans, intersex, personas de género fluido y otras disidencias que experimentan con sonido en Latinoamérica.
 
 Sus objetivos son: 1) generar un recurso para docentes, investigadorxs, programadorxs, curadorxs y artistas interesadxs en incluir artistas mujeres, lesbianas, trans, intersex, personas de género fluido y otras disidencias en sus clases, trabajos, conciertos, sellos discográficos, exposiciones, etcétera; 2) colaborar en la conexión entre artistas; y 3) promover la generación de conocimiento colectivo y colaborativo.
