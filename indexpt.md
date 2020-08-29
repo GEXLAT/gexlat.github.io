@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 ## [Gênero Experimentação América Latina]
  
 Este site contém uma base de dados que inclui mulheres, lésbicas, trans, intersexo, pessoas de gênero fluído e outras dissidências que experimentam com som na América Latina.
