@@ -16,7 +16,7 @@ A base de dados tem uma licença aberta (GNU) com o fim de que qualquer pessoa p
 
 Equipe GEX: Emi Bahamonde Noriega, Mariana Carvalho, Alma Laprida, Vanessa De Michelis, Jessica Rodríguez, Marianne Teixido.  
 
-Programação: Jessica Rodríguez e Marianne Teixido.  
+Programação: Marianne Teixido e Jessica Rodríguez.  
 
 Tradução para o português: Mariana Carvalho.  
 
