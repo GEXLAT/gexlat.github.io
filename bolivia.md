@@ -14,7 +14,7 @@ __Adriana Aramayo__
 Compositora  
 [https://www.facebook.com/adriana.aramayo](https://www.facebook.com/adriana.aramayo)
 
-__Bernarda VillaGómez__
+__Bernarda VillaGómez__ 
 Artista sonora
 
 __Canela Palacios__  
