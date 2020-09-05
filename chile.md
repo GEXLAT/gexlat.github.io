@@ -38,6 +38,11 @@ __Camila Moreno__
 __Caro Opazo__  
 [https://carolinaopazo.hotglue.me/](https://carolinaopazo.hotglue.me/)  
 
+__Cecilia García-Gracia__  
+Compositora, pianista y cantante  
+[https://soundcloud.com/cecigarcia1](https://soundcloud.com/cecigarcia1)  
+[https://soundcloud.com/ciudaded-s](https://soundcloud.com/ciudaded-s)  
+
 __Claudia González Godoy__  
 [http://claudiagonzalez.cl/](http://claudiagonzalez.cl/)  
 
