@@ -14,7 +14,7 @@ __Adriana Aramayo__
 Compositora  
 [https://www.facebook.com/adriana.aramayo](https://www.facebook.com/adriana.aramayo)
 
-__Bernarda VillaGómez__ 
+__Bernarda VillaGómez__
 Artista sonora
 
 __Canela Palacios__  
@@ -38,7 +38,7 @@ Gestora cultural y artista
 [https://www.facebook.com/mona.mo.758399](https://www.facebook.com/mona.mo.758399) 
 [https://www.facebook.com/sonandes/](https://www.facebook.com/sonandes/)
 
-__Lluvia Bustos___
+__Lluvia Bustos__
 Artista
 [https://www.facebook.com/lluviaBS](https://www.facebook.com/lluviaBS)
 
