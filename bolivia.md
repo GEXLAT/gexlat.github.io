@@ -27,7 +27,7 @@ Productora musical - Improvisadora - DIY
 
 __Dúo Abrelata (Canela Palacios y Adriana Aramayo)__  
 Compositoras  
-[https://www.facebook.com/D%C3%BAo-Abrelata-225369910810526/](https://www.facebook.com/D%C3%BAo-Abrelata-225369910810526/) 
+[https://www.facebook.com/D%C3%BAo-Abrelata-225369910810526/](https://www.facebook.com/Dúo-Abrelata-225369910810526/) 
 
 __Gabriela Durán (Capelu)__  
 Productora musical - Gestora cultural  
