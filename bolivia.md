@@ -38,7 +38,7 @@ Gestora cultural y artista
 [https://www.facebook.com/mona.mo.758399](https://www.facebook.com/mona.mo.758399) 
 [https://www.facebook.com/sonandes/](https://www.facebook.com/sonandes/)
 
-__Lluvia Bustos__
+__Lluvia Bustos___
 Artista
 [https://www.facebook.com/lluviaBS](https://www.facebook.com/lluviaBS)
 
