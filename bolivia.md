@@ -14,8 +14,8 @@ __Adriana Aramayo__
 Compositora  
 [https://www.facebook.com/adriana.aramayo](https://www.facebook.com/adriana.aramayo)
 
-__Bernarda VillaGómez__
-Artista sonora
+__Bernarda VillaGómez__  
+Artista sonora  
 
 __Canela Palacios__  
 Compositora  
@@ -33,14 +33,14 @@ __Gabriela Durán (Capelu)__
 Productora musical - Gestora cultural  
 [https://soundcloud.com/capelu](https://soundcloud.com/capelu)  
 
-__Guely Morato (Violencia Katari)__
-Gestora cultural y artista
-[https://www.facebook.com/mona.mo.758399](https://www.facebook.com/mona.mo.758399) 
-[https://www.facebook.com/sonandes/](https://www.facebook.com/sonandes/)
+__Guely Morato (Violencia Katari)__  
+Gestora cultural y artista  
+[https://www.facebook.com/mona.mo.758399](https://www.facebook.com/mona.mo.758399)  
+[https://www.facebook.com/sonandes/](https://www.facebook.com/sonandes/)  
 
-__Lluvia Bustos__
-Artista
-[https://www.facebook.com/lluviaBS](https://www.facebook.com/lluviaBS)
+__Lluvia Bustos__  
+Artista  
+[https://www.facebook.com/lluviaBS](https://www.facebook.com/lluviaBS)  
 
 __Mayra Gonsález__  
 Cantante  
