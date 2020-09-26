@@ -6,11 +6,11 @@ Sus objetivos son: 1) generar un recurso para docentes, investigadorxs, programa
 
 La base de datos tiene una **licencia abierta** (GNU) con el fin de que cualquiera pueda utilizar, modificar y compartir la información que hay en ella libremente.
 
-[**Base de datos**](./basededatos.html).   
+[**Acceder a la base de datos**](./basededatos.html)   
 
 
 
-Este es un relevamiento abierto y colectivo. Desde su creación, en 2015, hasta hoy, esta lista fue alimentada por decenas de personas anónimas. Si te parece que faltan nombres en la lista y querés colaborar, hacé click en el siguiente link para ingresar en el documento colaborativo abierto y sentite libre de agregarlos: [lista de nombres y proyectos](https://docs.google.com/document/d/1mtdZueD4sV1sg4j4XWx-84YZrhAa7f1KGV3CMJ3phGM/edit#)
+Este es un relevamiento abierto y colectivo. Desde su creación, en 2015, hasta hoy, esta lista fue alimentada por decenas de personas anónimas. Si te parece que faltan nombres en la lista y querés colaborar, hacé click en el siguiente link para ingresar en el documento colaborativo abierto y sentite libre de agregarlos: [lista de nombres y proyectos](https://docs.google.com/document/d/1mtdZueD4sV1sg4j4XWx-84YZrhAa7f1KGV3CMJ3phGM/edit#).
 
 
 
