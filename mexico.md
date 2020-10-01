@@ -10,118 +10,22 @@ layout: default
 
 ## MÉXICO  
 
-__Ana Lidia Domínguez Ruiz__  
-Antropóloga sonora  
-[https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz](https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz)  
-
-__Sarmen Almond__  
-[https://soundcloud.com/startmoves](https://soundcloud.com/startmoves)  
-
-__Carmina Escobar__  
-[http://carminaescobar.com/](http://carminaescobar.com/)  
-[https://vimeo.com/carminaescobar](https://vimeo.com/carminaescobar)  
-[https://soundcloud.com/carmina](https://soundcloud.com/carmina)  
-
-__Marcela Armas__  
-[http://www.marcelaarmas.net/](http://www.marcelaarmas.net/)  
-
-__Ana Paula Santana__  
-[http://anapaulasantana.net/](http://anapaulasantana.net/)  
-[https://soundcloud.com/anapaulasantana](https://soundcloud.com/anapaulasantana)  
-
-__Bárbara Lázara__  
-[https://soundcloud.com/barbaralazara](https://soundcloud.com/barbaralazara)  
-
-__Leslie García__  
-Sound artist   
-[http://lessnullvoid.cc/content/](http://lessnullvoid.cc/content/)  
-[https://soundcloud.com/lessnullvoid/](https://soundcloud.com/lessnullvoid/)  
-
-__Verónica Mota (Ciudad de México/Berlín)__  
-Urban Arts Berlin - Founder, Mentor & Manager  
-Sound Artist - Body Art Performer - Feminist Tech-Teacher  
-[https://vimeo.com/249729786](https://vimeo.com/249729786)  
-[https://soundcloud.com/user-274555905](https://soundcloud.com/user-274555905)  
-[http://veromisscubop.wixsite.com/veronicamota](http://veromisscubop.wixsite.com/veronicamota)  
-[https://www.facebook.com/Urban-Arts-Berlin-162144717144780/](https://www.facebook.com/Urban-Arts-Berlin-162144717144780/)  
-
-__Rocío Díaz de Cossío  (México-NYC,US)__  
-Cellista - Impro - Electrónico  
-sdcrocio@gmail.com  
-[https://www.youtube.com/channel/UCGkZjTnJWqQ9X5D7caogrLg?view_as=subscriber](https://www.youtube.com/channel/UCGkZjTnJWqQ9X5D7caogrLg?view_as=subscriber)  
-
-__Angelica Castello (Austria/Mexico)____  
-[https://soundcloud.com/ang-lica-castell](https://soundcloud.com/ang-lica-castell)  
-
-__Sabina Covarrubias (Francia/Mexico)__  
-[https://soundcloud.com/sabinacovarrubias](https://soundcloud.com/sabinacovarrubias)  
-[www.sabinacovarrubias.com](https://sabinacovarrubias.com)  
-
-__Paulina Lasa (Nima Ikki)__  
-[https://soundcloud.com/nima_ikki](https://soundcloud.com/nima_ikki)  
-
-__Tania Rubio__  
-[https://soundcloud.com/tania-rubio](https://soundcloud.com/tania-rubio)  
-[http://taniarubio.com/](http://taniarubio.com/)  
-
-__Iracema de Andrade (Brasil/México)__  
-[www.iracemadeandrade.com](http://iracemadeandrade.com)   
-
-__Libertad Figueroa__  
-[https://soundcloud.com/libertad-figueroa](https://soundcloud.com/libertad-figueroa)  
-
-__Elena Castillo__  
-[https://soundcloud.com/elentric](https://soundcloud.com/elentric)  
-
-__Carole Chargueron (France/México)__  
-Composer - Sound artist  
-[https://soundcloud.com/carole-chargueron](https://soundcloud.com/carole-chargueron)  
-[https://vimeo.com/user6423207](https://vimeo.com/user6423207)  
-
-__Azucena Losana (México-Argentina)__  
-[www.azulosa.com](https://azulosa.com)  
-
-__Itzel Noyz (Naerlot)__  
-Compositora - Cantante - Productora  
-[https://naerlot.bandcamp.com/](https://naerlot.bandcamp.com/)  
-[https://www.facebook.com/Naerlot](https://www.facebook.com/Naerlot)  
-
-__Karina f.Villaseñor__  
-Diseñadora de sonido - Productora Musical - Investigadora  
-[https://soundcloud.com/nei-villasenor](https://soundcloud.com/nei-villasenor)  
-[https://www.researchgate.net/profile/Karina_Franco_Villasenor](https://www.researchgate.net/profile/Karina_Franco_Villasenor)  
-[https://mx.linkedin.com/in/karina-franco-villaseñor](https://mx.linkedin.com/in/karina-franco-villaseñor)  
-
-__Mirna Castro__  
-[https://soundcloud.com/mirna-castro](https://soundcloud.com/mirna-castro)  
-
-__Lia García (La Novia Sirena)__  
-[http://hysteria.mx/la-sirena-de-lia-romper-las-relaciones-desiguales-a-traves-de-una-extraneza/](http://hysteria.mx/la-sirena-de-lia-romper-las-relaciones-desiguales-a-traves-de-una-extraneza/)  
-[https://ojs.uv.es/index.php/extravio/article/view/4537/6769](https://ojs.uv.es/index.php/extravio/article/view/4537/6769)  
-[http://jerrychinos.wixsite.com/transartivismosudaka/contact](http://jerrychinos.wixsite.com/transartivismosudaka/contact)  
-
-__Tania Candiani__  
-[www.taniacandiani.com](https://taniacandiani.com)  
-
-__María Lipkau__  
-[https://soundcloud.com/marie-lipkau](https://soundcloud.com/marie-lipkau)  
-
 __Aimée Theriot__  
+[https://aimeetheriot.net/](https://aimeetheriot.net/)  
 
-__Rossana Lara__  
-[https://unam.academia.edu/RossanaLara](https://unam.academia.edu/RossanaLara)  
+__Alejandra Hernández__  
+[www.alejandrahernandez.net](https://alejandrahernandez.net)  
+[https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil](https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil)  
 
-__Lorena Mal__  
-[http://www.lorenamal.com/](http://www.lorenamal.com/)  
+__Alina Maldonado__  
+[https://alinamaldonado.com/](https://alinamaldonado.com/)  
+[https://soundcloud.com/alinamaldonado](https://soundcloud.com/alinamaldonado)  
+[https://alinamaldonado.bandcamp.com/](https://alinamaldonado.bandcamp.com/)  
 
-__Valeria Jonard__  
-[http://www.valeriajonard.com/](http://www.valeriajonard.com/)  
-
-__Invasorix__  
-[http://invasorix.tumblr.com/videos](http://invasorix.tumblr.com/videos)  
-
-__Andrea Ancira__  
-[https://soundcloud.com/andreaanciragarcia](https://soundcloud.com/andreaanciragarcia)  
+__Alicia Retrovirus__  
+[https://grave.bandcamp.com/](https://grave.bandcamp.com/)  
+[https://www.facebook.com/grave.sonido/](https://www.facebook.com/grave.sonido/)  
+[https://www.instagram.com/rretrovirus/](https://www.instagram.com/rretrovirus/)  
 
 __Alma G. Ferrer__   	 	 		
 [http://mitaminelab.org​/](http://mitaminelab.org​/)  
@@ -130,79 +34,16 @@ __Alma G. Ferrer__
 [http://soundcloud.com/mimilk​/](http://soundcloud.com/mimilk​/)  
 [http://ibero909.fm/programas/mitaminelab­la­noche­de­las­mandibulas­trabadas/](http://ibero909.fm/programas/mitaminelab­la­noche­de­las­mandibulas­trabadas/)  
 
-__Jessica Smurphy__  
-[https://soundcloud.com/djsmurphy](https://soundcloud.com/djsmurphy)  
+__Ana Lidia Domínguez Ruiz__  
+Antropóloga sonora  
+[https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz](https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz)  
 
-__Piaka Roela__  
-[https://soundcloud.com/piaka-roela](https://soundcloud.com/piaka-roela)  
-[https://www.mixcloud.com/piakaroela/](https://www.mixcloud.com/piakaroela/)  
+__Ana Paula Santana__  
+[http://anapaulasantana.net/](http://anapaulasantana.net/)  
+[https://soundcloud.com/anapaulasantana](https://soundcloud.com/anapaulasantana)  
 
-__Sonidazo La Verga__  
-[http://sonidazolaverga.tumblr.com/](http://sonidazolaverga.tumblr.com/)  
-[https://www.facebook.com/Sonidazo-La-Verga-224898954621225/](https://www.facebook.com/Sonidazo-La-Verga-224898954621225/)  
-
-__Camille Mandoki__  
-[https://soundcloud.com/billiemandoki](https://soundcloud.com/billiemandoki)  
-[https://www.facebook.com/billiemandoki](https://www.facebook.com/billiemandoki)  
-
-__Daniela Falcón__  
-Artista interdisciplinaria  
-[https://vimeo.com/user19829910](https://vimeo.com/user19829910)  
-[https://www.facebook.com/lunares.destino](https://www.facebook.com/lunares.destino)  
-
-__Macarena Guerrero__  
-[https://soundcloud.com/macarenaguerrero](https://soundcloud.com/macarenaguerrero)  
-
-__Verónica Mota__  
-[http://veronica-mota.blogspot.mx/](http://veronica-mota.blogspot.mx/)  
-
-__Liliana Rodríguez Alvarado/Nabora Carrillo__  
-[https://www.youtube.com/watch?v=rdncHQLECpM](https://www.youtube.com/watch?v=rdncHQLECpM)  
-[https://www.youtube.com/watch?v=gw2vONU0-RE](https://www.youtube.com/watch?v=gw2vONU0-RE)  
-
-__Jean Carla Rodea__  
-[https://www.jeancarlarodea.com](https://www.jeancarlarodea.com)  
-[https://www.facebook.com/jcrodea](https://www.facebook.com/jcrodea)  
-[https://vimeo.com/user4852035](https://vimeo.com/user4852035)  
-
-__Karen Borraz__  
-[https://soundcloud.com/kobto](https://soundcloud.com/kobto)  
-
-__Teresa Novelo Pavía (México/Brasil)__  
-[https://soundcloud.com/teresa-novelo-13](https://soundcloud.com/teresa-novelo-13)  
-
-__Concepción Huerta__  
-[https://soundcloud.com/cncpcn](https://soundcloud.com/cncpcn)  
-
-__Max Ammo__  
-[https://soundcloud.com/goo-689383889](https://soundcloud.com/goo-689383889)  
-
-__Gabriela Vargas Cetina__  
-[https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina](https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina)  
-
-__Itze Serrano__  
-[https://armstrongliberado.wordpress.com/author/itzesinele/](https://armstrongliberado.wordpress.com/author/itzesinele/)  
-
-__Xareni Lizárraga__  
-[http://impulsivehabitat.com/releases/ihab117.htm](http://impulsivehabitat.com/releases/ihab117.htm)  
-[https://soundcloud.com/amparrou](https://soundcloud.com/amparrou)  
-
-__Marianne Teixido__  
-[https://soundcloud.com/marianne_teixido](https://soundcloud.com/marianne_teixido)  
-[https://marianneteixido.github.io/](https://marianneteixido.github.io/)  
-[https://www.youtube.com/channel/UCXoKGzDxwbPbP7QXY7HHr-w?view_as=subscriber](https://www.youtube.com/channel/UCXoKGzDxwbPbP7QXY7HHr-w?view_as=subscriber)  
-
-__Alejandra Hernández__  
-[www.alejandrahernandez.net](https://alejandrahernandez.net)  
-[https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil](https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil)  
-
-__Aurora Boreal (MTY)__  
-[https://www.facebook.com/ExperienciaSensorialMx/](https://www.facebook.com/ExperienciaSensorialMx/)  
-[https://soundcloud.com/borealx](https://soundcloud.com/borealx)  
-[https://soundcloud.com/momentummty](https://soundcloud.com/momentummty)  
-
-__Teresa Claudia Martínez__  
-[https://soundcloud.com/user-805800926](https://soundcloud.com/user-805800926)  
+__Andrea Ancira__  
+[https://soundcloud.com/andreaanciragarcia](https://soundcloud.com/andreaanciragarcia)  
 
 __Andrea SHH__  
 Arte Sonoro - Audiovisual - Experimentación Sonora  
@@ -211,10 +52,113 @@ Arte Sonoro - Audiovisual - Experimentación Sonora
 [https://sonidodelsilencio.tumblr.com/](https://sonidodelsilencio.tumblr.com/)  
 [https://vimeo.com/andreashh](https://vimeo.com/andreashh)  
 
-__Alicia Retrovirus__  
-[https://grave.bandcamp.com/](https://grave.bandcamp.com/)  
-[https://www.facebook.com/grave.sonido/](https://www.facebook.com/grave.sonido/)  
-[https://www.instagram.com/rretrovirus/](https://www.instagram.com/rretrovirus/)  
+__Angelica Castello (Austria/Mexico)____  
+[https://soundcloud.com/ang-lica-castell](https://soundcloud.com/ang-lica-castell)  
+
+__Aurora Boreal (MTY)__  
+[https://www.facebook.com/ExperienciaSensorialMx/](https://www.facebook.com/ExperienciaSensorialMx/)  
+[https://soundcloud.com/borealx](https://soundcloud.com/borealx)  
+[https://soundcloud.com/momentummty](https://soundcloud.com/momentummty)  
+
+__Azucena Losana (México-Argentina)__  
+[www.azulosa.com](https://azulosa.com)  
+
+__Bárbara Lázara__  
+[https://soundcloud.com/barbaralazara](https://soundcloud.com/barbaralazara)  
+
+__Camille Mandoki__  
+[https://soundcloud.com/billiemandoki](https://soundcloud.com/billiemandoki)  
+[https://www.facebook.com/billiemandoki](https://www.facebook.com/billiemandoki)  
+
+__Carmina Escobar__  
+[http://carminaescobar.com/](http://carminaescobar.com/)  
+[https://vimeo.com/carminaescobar](https://vimeo.com/carminaescobar)  
+[https://soundcloud.com/carmina](https://soundcloud.com/carmina)  
+
+__Carole Chargueron (France/México)__  
+Composer - Sound artist  
+[https://soundcloud.com/carole-chargueron](https://soundcloud.com/carole-chargueron)  
+[https://vimeo.com/user6423207](https://vimeo.com/user6423207)  
+
+__Concepción Huerta__  
+[https://soundcloud.com/cncpcn](https://soundcloud.com/cncpcn)  
+
+__Daniela Falcón__  
+Artista interdisciplinaria  
+[https://vimeo.com/user19829910](https://vimeo.com/user19829910)  
+[https://www.facebook.com/lunares.destino](https://www.facebook.com/lunares.destino)  
+
+__Elena Castillo__  
+[https://soundcloud.com/elentric](https://soundcloud.com/elentric)  
+
+__Gabriela Vargas Cetina__  
+[https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina](https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina)  
+
+__Invasorix__  
+[http://invasorix.tumblr.com/videos](http://invasorix.tumblr.com/videos)  
+
+__Iracema de Andrade (Brasil/México)__  
+[www.iracemadeandrade.com](http://iracemadeandrade.com)   
+
+__Itzá García__  
+[http://bit.ly/itzagarcia-es](http://bit.ly/itzagarcia-es)  
+[https://soundcloud.com/universoestetico](https://soundcloud.com/universoestetico)  
+
+__Itze Serrano__  
+[https://armstrongliberado.wordpress.com/author/itzesinele/](https://armstrongliberado.wordpress.com/author/itzesinele/)  
+
+__Itzel Noyz (Naerlot)__  
+Compositora - Cantante - Productora  
+[https://naerlot.bandcamp.com/](https://naerlot.bandcamp.com/)  
+[https://www.facebook.com/Naerlot](https://www.facebook.com/Naerlot)  
+
+__Jean Carla Rodea__  
+[https://www.jeancarlarodea.com](https://www.jeancarlarodea.com)  
+[https://www.facebook.com/jcrodea](https://www.facebook.com/jcrodea)  
+[https://vimeo.com/user4852035](https://vimeo.com/user4852035)  
+
+__Jessica A. Rodríguez__  
+Video - Código - Sonido - Literatura  
+[https://vimeo.com/jessicaarinne](https://vimeo.com/jessicaarinne)  
+[http://andamio.in/](http://andamio.in/)  
+
+__Jessica Smurphy__  
+[https://soundcloud.com/djsmurphy](https://soundcloud.com/djsmurphy)  
+
+__Karen Borraz__  
+[https://soundcloud.com/kobto](https://soundcloud.com/kobto)  
+
+__Karina f.Villaseñor__  
+Diseñadora de sonido - Productora Musical - Investigadora  
+[https://soundcloud.com/nei-villasenor](https://soundcloud.com/nei-villasenor)  
+[https://www.researchgate.net/profile/Karina_Franco_Villasenor](https://www.researchgate.net/profile/Karina_Franco_Villasenor)  
+[https://mx.linkedin.com/in/karina-franco-villaseñor](https://mx.linkedin.com/in/karina-franco-villaseñor)  
+
+__Leslie García__  
+Sound artist   
+[http://lessnullvoid.cc/content/](http://lessnullvoid.cc/content/)  
+[https://soundcloud.com/lessnullvoid/](https://soundcloud.com/lessnullvoid/)  
+
+__Lia García (La Novia Sirena)__  
+[http://hysteria.mx/la-sirena-de-lia-romper-las-relaciones-desiguales-a-traves-de-una-extraneza/](http://hysteria.mx/la-sirena-de-lia-romper-las-relaciones-desiguales-a-traves-de-una-extraneza/)  
+[https://ojs.uv.es/index.php/extravio/article/view/4537/6769](https://ojs.uv.es/index.php/extravio/article/view/4537/6769)  
+[http://jerrychinos.wixsite.com/transartivismosudaka/contact](http://jerrychinos.wixsite.com/transartivismosudaka/contact)  
+
+__Libertad Figueroa__  
+[https://soundcloud.com/libertad-figueroa](https://soundcloud.com/libertad-figueroa)  
+
+__Liliana Rodríguez Alvarado/Nabora Carrillo__  
+[https://www.youtube.com/watch?v=rdncHQLECpM](https://www.youtube.com/watch?v=rdncHQLECpM)  
+[https://www.youtube.com/watch?v=gw2vONU0-RE](https://www.youtube.com/watch?v=gw2vONU0-RE)  
+
+__Lorena Mal__  
+[http://www.lorenamal.com/](http://www.lorenamal.com/)  
+
+__Macarena Guerrero__  
+[https://soundcloud.com/macarenaguerrero](https://soundcloud.com/macarenaguerrero)  
+
+__Magda Martínez__  
+[https://soundcloud.com/mazhd](https://soundcloud.com/mazhd)  
 
 __Malitzin Cortés (CNDSD)__  
 [https://vimeo.com/cndsd](https://vimeo.com/cndsd)  
@@ -222,26 +166,77 @@ __Malitzin Cortés (CNDSD)__
 [https://subreal.bandcamp.com/album/in-tongues](https://subreal.bandcamp.com/album/in-tongues)  
 [https://soundcloud.com/cndsd](https://soundcloud.com/cndsd)  
 
-__Alina Maldonado__  
-[https://alinamaldonado.com/](https://alinamaldonado.com/)  
-[https://soundcloud.com/alinamaldonado](https://soundcloud.com/alinamaldonado)  
-[https://alinamaldonado.bandcamp.com/](https://alinamaldonado.bandcamp.com/)  
+__Marcela Armas__  
+[http://www.marcelaarmas.net/](http://www.marcelaarmas.net/)  
 
-__Jessica A. Rodríguez__  
-Video - Código - Sonido - Literatura  
-[https://vimeo.com/jessicaarinne](https://vimeo.com/jessicaarinne)  
-[http://andamio.in/](http://andamio.in/)  
+__María Lipkau__  
+[https://soundcloud.com/marie-lipkau](https://soundcloud.com/marie-lipkau)  
 
-__Itzá García__  
-[http://bit.ly/itzagarcia-es](http://bit.ly/itzagarcia-es)  
-[https://soundcloud.com/universoestetico](https://soundcloud.com/universoestetico)  
+__Marianne Teixido__  
+[https://soundcloud.com/marianne_teixido](https://soundcloud.com/marianne_teixido)  
+[https://marianneteixido.github.io/](https://marianneteixido.github.io/)  
+[https://www.youtube.com/channel/UCXoKGzDxwbPbP7QXY7HHr-w?view_as=subscriber](https://www.youtube.com/channel/UCXoKGzDxwbPbP7QXY7HHr-w?view_as=subscriber)  
 
-__Magda Martínez__  
-[https://soundcloud.com/mazhd](https://soundcloud.com/mazhd)  
+__Max Ammo__  
+[https://soundcloud.com/goo-689383889](https://soundcloud.com/goo-689383889)  
 
+__Mirna Castro__  
+[https://soundcloud.com/mirna-castro](https://soundcloud.com/mirna-castro)  
 
+__Paulina Lasa (Nima Ikki)__  
+[https://soundcloud.com/nima_ikki](https://soundcloud.com/nima_ikki)  
 
+__Piaka Roela__  
+[https://soundcloud.com/piaka-roela](https://soundcloud.com/piaka-roela)  
+[https://www.mixcloud.com/piakaroela/](https://www.mixcloud.com/piakaroela/)  
 
+__Rocío Díaz de Cossío  (México-NYC,US)__  
+Cellista - Impro - Electrónico  
+sdcrocio@gmail.com  
+[https://www.youtube.com/channel/UCGkZjTnJWqQ9X5D7caogrLg?view_as=subscriber](https://www.youtube.com/channel/UCGkZjTnJWqQ9X5D7caogrLg?view_as=subscriber)  
+
+__Rossana Lara__  
+[https://unam.academia.edu/RossanaLara](https://unam.academia.edu/RossanaLara)  
+
+__Sabina Covarrubias (Francia/Mexico)__  
+[https://soundcloud.com/sabinacovarrubias](https://soundcloud.com/sabinacovarrubias)  
+[www.sabinacovarrubias.com](https://sabinacovarrubias.com)  
+
+__Sarmen Almond__  
+[https://soundcloud.com/startmoves](https://soundcloud.com/startmoves)  
+
+__Sonidazo La Verga__  
+[http://sonidazolaverga.tumblr.com/](http://sonidazolaverga.tumblr.com/)  
+[https://www.facebook.com/Sonidazo-La-Verga-224898954621225/](https://www.facebook.com/Sonidazo-La-Verga-224898954621225/)  
+
+__Tania Rubio__  
+[https://soundcloud.com/tania-rubio](https://soundcloud.com/tania-rubio)  
+[http://taniarubio.com/](http://taniarubio.com/)  
+
+__Tania Candiani__  
+[www.taniacandiani.com](https://taniacandiani.com)  
+
+__Teresa Claudia Martínez__  
+[https://soundcloud.com/user-805800926](https://soundcloud.com/user-805800926)  
+
+__Teresa Novelo Pavía (México/Brasil)__  
+[https://soundcloud.com/teresa-novelo-13](https://soundcloud.com/teresa-novelo-13)  
+
+__Valeria Jonard__  
+[http://www.valeriajonard.com/](http://www.valeriajonard.com/)  
+
+__Verónica Mota (Ciudad de México/Berlín)__  
+Urban Arts Berlin - Founder, Mentor & Manager  
+Sound Artist - Body Art Performer - Feminist Tech-Teacher  
+[https://vimeo.com/249729786](https://vimeo.com/249729786)  
+[https://soundcloud.com/user-274555905](https://soundcloud.com/user-274555905)  
+[http://veromisscubop.wixsite.com/veronicamota](http://veromisscubop.wixsite.com/veronicamota)  
+[https://www.facebook.com/Urban-Arts-Berlin-162144717144780/](https://www.facebook.com/Urban-Arts-Berlin-162144717144780/)  
+[http://veronica-mota.blogspot.mx/](http://veronica-mota.blogspot.mx/)  
+
+__Xareni Lizárraga__  
+[http://impulsivehabitat.com/releases/ihab117.htm](http://impulsivehabitat.com/releases/ihab117.htm)  
+[https://soundcloud.com/amparrou](https://soundcloud.com/amparrou)  
 
 
 [Regresar al índice por país](./basededatos.html)  
