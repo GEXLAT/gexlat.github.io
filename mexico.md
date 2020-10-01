@@ -27,7 +27,7 @@ __Alicia Retrovirus__
 [https://www.facebook.com/grave.sonido/](https://www.facebook.com/grave.sonido/)  
 [https://www.instagram.com/rretrovirus/](https://www.instagram.com/rretrovirus/)  
 
-__Alma G. Ferrer__   	 	 		
+__Alma G. Ferrer__    	 	 		
 [http://mitaminelab.org​/](http://mitaminelab.org​/)  
 ​[http://soundcloud.com/mitaminelab​/](http://soundcloud.com/mitaminelab​/)  
 [http://vimeo.com/mimilk](http://vimeo.com/mimilk)  
