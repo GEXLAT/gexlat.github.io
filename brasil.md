@@ -38,13 +38,13 @@ __Ariane Stolfi__
 [https://soundcloud.com/asss](https://soundcloud.com/asss)  
 
 __Bartira__  
-Harsh noise - Experimental electronic music  
+Harsh noise - Música experimental electrónica  
 [https://soundcloud.com/ill_will](https://soundcloud.com/ill_will)  
 [https://soundcloud.com/aben-oada666](https://soundcloud.com/aben-oada666)  
 [http://cargocollective.com/bartira](http://cargocollective.com/bartira)  
 
 __Bella__  
-[http://bella.hotglue.me](http://bella.hotglue.me)  
+[https://www.bel-la.com/](https://www.bel-la.com/)  
 [http://bellacomsom.tumblr.com](http://bellacomsom.tumblr.com)  
 
 __Bya de Paula__  
@@ -72,7 +72,7 @@ __Dibuk__
 [https://soundcloud.com/lea_cze](https://soundcloud.com/lea_cze)  
 
 __ÉRICA__  
-Composição - Synthwave - Techno  
+Composición - Synthwave - Techno  
 [http://erica.bandcamp.com](http://erica.bandcamp.com)  
 [http://www.soundcloud.com/ericaalves](http://www.soundcloud.com/ericaalves)  
 Instagram: @ericaalvesmusic  
@@ -85,14 +85,14 @@ __Fabiana Faleiros__
 [http://www.youtube.com/user/donafaleiros](http://www.youtube.com/user/donafaleiros)    
 
 __Fê Luz__  
-Sound poetry  
+Poesia sonora  
 [https://soundcloud.com/feluz](https://soundcloud.com/feluz)  
 
 __Fernanda Navarro__  
 [https://soundcloud.com/fernandanavarro](https://soundcloud.com/fernandanavarro)  
 
 __Flora Holderbaum__  
-Acousmatic - Sound art - Instrumental improvisation - Vocal performance  
+Acousmática - Arte sonoro - Improvisación instrumental - Performance vocal  
 [https://soundcloud.com/flora-holderbaum](https://soundcloud.com/flora-holderbaum)  
 
 __Inés Terra__  
@@ -105,7 +105,7 @@ __Janete El Haouli__
 [http://www.kunstradio.at/BIOS/haoulibio.html](http://www.kunstradio.at/BIOS/haoulibio.html)  
 
 __Julia Teles__  
-Acousmatic - Sound art - Performance  
+Acousmática -Arte sonoro - Performance  
 [https://soundcloud.com/juliateles](https://soundcloud.com/juliateles)  
 
 __Laura Mello (Alemanha/Brasil)__  
@@ -115,25 +115,25 @@ __Leandra Lambert__
 [http://www.vozdelfuego.net](http://www.vozdelfuego.net)  
 
 __Lilian Campesato__  
-Sound art - Electroacoustic Performance  
+Arte Sonoro - Performance Electroacústico  
 [http://liliancampesato.tumblr.com/](http://liliancampesato.tumblr.com/)  
 [https://soundcloud.com/l-lian-campesato](https://soundcloud.com/l-lian-campesato)  
 
 __Lilian Zaremba__  
-Sound art - Plastic art - Radioart  
+Arte Sonoro - Artes Plásticas - Radioarte  
 [https://soundcloud.com/you/tracks](https://soundcloud.com/you/tracks)  
 
 __Luisa Lemgruber__  
-Field recording - Performance - Instalação  
+Grabaciones de campo - Performance - Instalación  
 [https://soundcloud.com/luisalemgruber](https://soundcloud.com/luisalemgruber)  
 [https://vimeo.com/luisalemgruber](https://vimeo.com/luisalemgruber)  
 
 __Marcela Lucatelli__  
-Acousmatic - Sound art - Performance  
+Acousmática - Arte Sonoro - Performance  
 [https://soundcloud.com/marcela-lucatelli](https://soundcloud.com/marcela-lucatelli)
 
 __Mariana Bahia (Sifonics)__  
-Composição - Experimental - Eletrônico  
+Composición - Experimental - Electrónico  
 [http://www.soundcloud.com/sifonics](http://www.soundcloud.com/sifonics)  
 [http://www.facebook.com/sifonicsound](http://www.facebook.com/sifonicsound)  
 Instagram: @sifonics  
@@ -149,21 +149,21 @@ __Marina Mapurunga__
 [https://mapu.art.br/](https://mapu.art.br/)  
 
 __Marion Velasco__  
-Performances sonicas  
+Performances sónicas  
 [https://www.youtube.com/user/marionveloz/videos](https://www.youtube.com/user/marionveloz/videos)  
 [https://soundcloud.com/marion-velasco](https://soundcloud.com/marion-velasco)  
 [https://www.mixcloud.com/marionvelasco/](https://www.mixcloud.com/marionvelasco/)  
 [https://soundcloud.com/instantbandgrrrls](https://soundcloud.com/instantbandgrrrls)  
 
 __Nanati Francischini__  
-Guitarra elétrica - Pedais de efeito e objetos - Improvisadora - Performer - produtora  
+Guitarra electrica - Pedales de efecto y objectos - Improvisadora - Performer - Productora  
 [https://teratosphonia.bandcamp.com/](https://teratosphonia.bandcamp.com/)  
 [https://www.facebook.com/teratosphonia](https://www.facebook.com/teratosphonia)  
 Instagram: @teratosphonia  
 [https://soundcloud.com/teratosphonia](https://soundcloud.com/teratosphonia)  
 
 __Nathassia Arrua / Perífa__  
-Produtora - Performer - Improv - DJ  
+Productora - Performer - Improv - DJ  
 [https://soundcloud.com/perifaxx](https://soundcloud.com/perifaxx)  
 
 __Paola Ribeiro__  
@@ -191,11 +191,11 @@ __Rafaele Maria Andrade__
 [https://rafaelemariaandrade.wixsite.com/rafaeleandrade](https://rafaelemariaandrade.wixsite.com/rafaeleandrade)  
 
 __Renata Roman__  
-Sound art - Acousmatic - Performance  
+Arte Sonoro - Acousmática - Performance  
 [https://soundcloud.com/atelie-sonoro](https://soundcloud.com/atelie-sonoro)  
 
 __Ritamaria__  
-Improvisadora - Performer - Educadora musical - voz - Corpo - Escuta  
+Improvisadora - Performer - Educadora musical - Voz - Cuerpo - Escucha  
 [https://soundcloud.com/ritamaria](https://soundcloud.com/ritamaria)  
 
 __SASKIA__  
@@ -216,11 +216,11 @@ __Vivian Caccuri__
 [http://viviancaccuri.net/](http://viviancaccuri.net/)  
 
 __Yasmin Ramyrez, a Paçoca Psicodélica__  
-Cantora - Compositora - Produtora artística  
+Cantora - Compositora - Productora artística  
 [https://www.facebook.com/Ramyrez77/](https://www.facebook.com/Ramyrez77/)  
 
 __Yasmin Marques__  
-Sound art  
+Arte Sonoro  
 [https://soundcloud.com/yasminmarques1](https://soundcloud.com/yasminmarques1)  
 
 
