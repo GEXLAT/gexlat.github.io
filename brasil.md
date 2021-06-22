@@ -16,6 +16,9 @@ __Aline Vieira__
 [https://meiavida.bandcamp.com/album/f-f-2](https://meiavida.bandcamp.com/album/f-f-2)
 [https://meiavida.bandcamp.com/album/excria-reverbera](https://meiavida.bandcamp.com/album/excria-reverbera)  
 
+__Amanda Jacometi__  
+[https://soundcloud.com/amandajacometi/](https://soundcloud.com/amandajacometi/)  
+
 __Andréia Regeni__  
 [https://soundcloud.com/ursa_menor](https://soundcloud.com/ursa_menor)  
 [https://alreves.bandcamp.com/album/bariloche](https://alreves.bandcamp.com/album/bariloche)  
@@ -93,10 +96,10 @@ Acousmatic - Sound art - Instrumental improvisation - Vocal performance
 [https://soundcloud.com/flora-holderbaum](https://soundcloud.com/flora-holderbaum)  
 
 __Inés Terra__  
-[http://isabelnogueira.com.br/](http://isabelnogueira.com.br/)  
+[http://cargocollective.com/inesterra/](http://cargocollective.com/inesterra/)  
 
 __Isabel Nogueira__  
-[http://cargocollective.com/inesterra/](http://cargocollective.com/inesterra/)  
+[http://isabelnogueira.com.br/](http://isabelnogueira.com.br/)  
 
 __Janete El Haouli__  
 [http://www.kunstradio.at/BIOS/haoulibio.html](http://www.kunstradio.at/BIOS/haoulibio.html)  
@@ -142,6 +145,9 @@ Artista sonora - Pianista - Improvisadora - Performer
 [https://soundcloud.com/marianatcarvalho](https://soundcloud.com/marianatcarvalho)  
 [https://www.youtube.com/channel/UC1OXMBAPWdDBN7BT7J4pewg?](https://www.youtube.com/channel/UC1OXMBAPWdDBN7BT7J4pewg?)  
 
+__Marina Mapurunga__  
+[https://mapu.art.br/](https://mapu.art.br/)  
+
 __Marion Velasco__  
 Performances sonicas  
 [https://www.youtube.com/user/marionveloz/videos](https://www.youtube.com/user/marionveloz/videos)  
@@ -159,6 +165,9 @@ Instagram: @teratosphonia
 __Nathassia Arrua / Perífa__  
 Produtora - Performer - Improv - DJ  
 [https://soundcloud.com/perifaxx](https://soundcloud.com/perifaxx)  
+
+__Paola Ribeiro__  
+[https://paribeiros.wixsite.com/paola/](https://paribeiros.wixsite.com/paola//)  
 
 __Paula Rebellato__  
 [https://vimeo.com/paularebellato](https://vimeo.com/paularebellato)  
@@ -192,6 +201,9 @@ Improvisadora - Performer - Educadora musical - voz - Corpo - Escuta
 __SASKIA__  
 [https://soundcloud.com/salnasalada](https://soundcloud.com/salnasalada)  
 [https://soundcloud.com/lassal](https://soundcloud.com/lassal)  
+
+__Tide Borges__  
+[http://www2.eca.usp.br/nusom/tide/](http://www2.eca.usp.br/nusom/tide/)  
 
 __Valéria Bonafé__  
 Compositora  
