@@ -92,8 +92,11 @@ __Flora Holderbaum__
 Acousmatic - Sound art - Instrumental improvisation - Vocal performance  
 [https://soundcloud.com/flora-holderbaum](https://soundcloud.com/flora-holderbaum)  
 
-__Isabel Nogueira__  
+__Inés Terra__  
 [http://isabelnogueira.com.br/](http://isabelnogueira.com.br/)  
+
+__Isabel Nogueira__  
+[http://cargocollective.com/inesterra/](http://cargocollective.com/inesterra/)  
 
 __Janete El Haouli__  
 [http://www.kunstradio.at/BIOS/haoulibio.html](http://www.kunstradio.at/BIOS/haoulibio.html)  
