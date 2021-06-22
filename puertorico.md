@@ -11,7 +11,7 @@ layout: default
 ## PUERTO RICO  
 
 __Angélica Negrón__  
-Composer  
+Compositora  
 [http://angelicanegron.com](http://angelicanegron.com)  
 [https://soundcloud.com/angelica-negron](https://soundcloud.com/angelica-negron)  
 
