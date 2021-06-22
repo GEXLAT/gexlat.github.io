@@ -18,7 +18,7 @@ Cellista - Improvisadora
 [https://ferozdevice.bandcamp.com/album/cartas-de-la-ni-a-astronauta](https://ferozdevice.bandcamp.com/album/cartas-de-la-ni-a-astronauta)  
 
 __Paraguay / Br / Denmark__  
-Experimental - Electronic soundscapes - Freejazz  
+Experimental - Paisajes sonoros electrónicos - Freejazz  
 [https://open.spotify.com/album/7v8ibZKOMzEPvdiHs8sDe9](https://open.spotify.com/album/7v8ibZKOMzEPvdiHs8sDe9)  
 [https://open.spotify.com/artist/3xAqoIOLdfPJ4yPM6FgFCd](https://open.spotify.com/artist/3xAqoIOLdfPJ4yPM6FgFCd)  
 [https://soundcloud.com/b-de-gude](https://soundcloud.com/b-de-gude)  
