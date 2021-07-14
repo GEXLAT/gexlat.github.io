@@ -17,22 +17,29 @@ __Alejandra Hernández__
 [www.alejandrahernandez.net](https://alejandrahernandez.net)  
 [https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil](https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil)  
 
+__Alexandra Cárdenas__  
+[http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas](http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas)  
+
 __Alina Maldonado__  
 [https://alinamaldonado.com/](https://alinamaldonado.com/)  
 [https://soundcloud.com/alinamaldonado](https://soundcloud.com/alinamaldonado)  
 [https://alinamaldonado.bandcamp.com/](https://alinamaldonado.bandcamp.com/)  
 
-__Alicia Retrovirus__  
+__Ali Terror / Grave-Mal__  
 [https://grave.bandcamp.com/](https://grave.bandcamp.com/)  
 [https://www.facebook.com/grave.sonido/](https://www.facebook.com/grave.sonido/)  
 [https://www.instagram.com/rretrovirus/](https://www.instagram.com/rretrovirus/)  
 
 __Alma G. Ferrer__  
 [http://mitaminelab.org​/](http://mitaminelab.org​/)  
-​[http://soundcloud.com/mitaminelab​/](http://soundcloud.com/mitaminelab​/)  
+[http://soundcloud.com/mitaminelab​/](http://soundcloud.com/mitaminelab​/)  
 [http://vimeo.com/mimilk](http://vimeo.com/mimilk)  
 [http://soundcloud.com/mimilk​/](http://soundcloud.com/mimilk​/)  
 [http://ibero909.fm/programas/mitaminelab­la­noche­de­las­mandibulas­trabadas/](http://ibero909.fm/programas/mitaminelab­la­noche­de­las­mandibulas­trabadas/)  
+
+__Amanda Gutiérrez__  
+Ecología acústica - Psicogeografía - Investigación sonora  
+[http://amandagutierrez.net/](http://amandagutierrez.net/)  
 
 __Ana Lidia Domínguez Ruiz__  
 Antropóloga sonora  
@@ -65,6 +72,11 @@ __Azucena Losana (México-Argentina)__
 
 __Bárbara Lázara__  
 [https://soundcloud.com/barbaralazara](https://soundcloud.com/barbaralazara)  
+
+__Carmina Escobar__  
+[http://carminaescobar.com/](http://carminaescobar.com/)  
+[https://vimeo.com/carminaescobar](https://vimeo.com/carminaescobar)  
+[https://soundcloud.com/carmina](https://soundcloud.com/carmina)  
 
 __Camille Mandoki__  
 [https://soundcloud.com/billiemandoki](https://soundcloud.com/billiemandoki)  
@@ -112,6 +124,10 @@ Compositora - Cantante - Productora
 [https://naerlot.bandcamp.com/](https://naerlot.bandcamp.com/)  
 [https://www.facebook.com/Naerlot](https://www.facebook.com/Naerlot)  
 
+__Ivonne Hernández__  
+[https://ivonnehernandez.pb.online/](https://ivonnehernandez.pb.online/)  
+[https://soundcloud.com/ivonne-hernandez-95474440](https://soundcloud.com/ivonne-hernandez-95474440)  
+
 __Jean Carla Rodea__  
 [https://www.jeancarlarodea.com](https://www.jeancarlarodea.com)  
 [https://www.facebook.com/jcrodea](https://www.facebook.com/jcrodea)  
@@ -133,6 +149,11 @@ Diseñadora de sonido - Productora Musical - Investigadora
 [https://soundcloud.com/nei-villasenor](https://soundcloud.com/nei-villasenor)  
 [https://www.researchgate.net/profile/Karina_Franco_Villasenor](https://www.researchgate.net/profile/Karina_Franco_Villasenor)  
 [https://mx.linkedin.com/in/karina-franco-villaseñor](https://mx.linkedin.com/in/karina-franco-villaseñor)  
+
+__Lena Ortega__  
+[https://soundcloud.com/johnnybillylee](https://soundcloud.com/johnnybillylee)  
+[https://radionopal.com/programas/sinsuperficie/](https://radionopal.com/programas/sinsuperficie/)  
+[https://www.leenalee.net/](https://www.leenalee.net/)  
 
 __Leslie García__  
 Sound artist   
