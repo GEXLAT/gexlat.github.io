@@ -11,26 +11,32 @@ layout: default
 ## MÉXICO  
 
 __Aimée Theriot__  
+Música experimental - Improvisación - Arte Sonoro  
 [https://aimeetheriot.net/](https://aimeetheriot.net/)  
 
 __Alejandra Hernández__  
-[www.alejandrahernandez.net](https://alejandrahernandez.net)  
+Compositora - Artista Sonora - Investigadora  
+[http://www.alejandrahernandez.net/](http://www.alejandrahernandez.net/t)  
 [https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil](https://www.col-legno.com/en/shop/20422-alejandra-hernandez-movil)  
 
 __Alexandra Cárdenas__  
+Improvisación - Live Coding - Compositora  
 [http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas](http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas)  
 
 __Alina Maldonado__  
+Violinista - Improvisación - Medios Electrónicos  
 [https://alinamaldonado.com/](https://alinamaldonado.com/)  
 [https://soundcloud.com/alinamaldonado](https://soundcloud.com/alinamaldonado)  
 [https://alinamaldonado.bandcamp.com/](https://alinamaldonado.bandcamp.com/)  
 
 __Ali Terror / Grave-Mal__  
+Música - Banda - Experimental  
 [https://grave.bandcamp.com/](https://grave.bandcamp.com/)  
-[https://www.facebook.com/grave.sonido/](https://www.facebook.com/grave.sonido/)  
+[https://www.facebook.com/grave.mal/](https://www.facebook.com/grave.mal/)  
 [https://www.instagram.com/rretrovirus/](https://www.instagram.com/rretrovirus/)  
 
 __Alma G. Ferrer__  
+Curadora - Historiadora de Arte - Artista  
 [http://mitaminelab.org​/](http://mitaminelab.org​/)  
 [http://soundcloud.com/mitaminelab​/](http://soundcloud.com/mitaminelab​/)  
 [http://vimeo.com/mimilk](http://vimeo.com/mimilk)  
@@ -42,14 +48,17 @@ Ecología acústica - Psicogeografía - Investigación sonora
 [http://amandagutierrez.net/](http://amandagutierrez.net/)  
 
 __Ana Lidia Domínguez Ruiz__  
-Antropóloga sonora  
+Antropóloga sonora - Coordinadora - Investigadora  
 [https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz](https://upn.academia.edu/AnaLidiaDom%C3%ADnguezRuiz)  
 
 __Ana Paula Santana__  
+Artista experimental - Arte interactivo - Video e intalación  
 [http://anapaulasantana.net/](http://anapaulasantana.net/)  
 [https://soundcloud.com/anapaulasantana](https://soundcloud.com/anapaulasantana)  
 
 __Andrea Ancira__  
+Noise - Composer - Imagen  
+[http://a-a-g.me/](http://a-a-g.me/)  
 [https://soundcloud.com/andreaanciragarcia](https://soundcloud.com/andreaanciragarcia)  
 
 __Andrea SHH__  
