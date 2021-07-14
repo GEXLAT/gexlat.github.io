@@ -69,63 +69,71 @@ Arte Sonoro - Audiovisual - Experimentación Sonora
 [https://vimeo.com/andreashh](https://vimeo.com/andreashh)  
 
 __Angelica Castello (Austria/Mexico)____  
+Compositora - Artista Sonora - Performer  
 [https://soundcloud.com/ang-lica-castell](https://soundcloud.com/ang-lica-castell)  
 
 __Aurora Boreal (MTY)__  
+Experimentación - Audiovisual - Corporalidad  
 [https://www.facebook.com/ExperienciaSensorialMx/](https://www.facebook.com/ExperienciaSensorialMx/)  
 [https://soundcloud.com/borealx](https://soundcloud.com/borealx)  
 [https://soundcloud.com/momentummty](https://soundcloud.com/momentummty)  
 
 __Azucena Losana (México-Argentina)__  
-[www.azulosa.com](https://azulosa.com)  
+Cine experimental - Instalación - Video  
+[http://www.azulosa.com/](http://www.azulosa.com/)  
 
 __Bárbara Lázara__  
+Sonido - Teatro - Prácticas Sociales  
 [https://soundcloud.com/barbaralazara](https://soundcloud.com/barbaralazara)  
 
 __Carmina Escobar__  
-[http://carminaescobar.com/](http://carminaescobar.com/)  
+Vocalista experimental - Artista intermedial - Performer  
+[https://carminaescobar.monster/](https://carminaescobar.monster/)  
 [https://vimeo.com/carminaescobar](https://vimeo.com/carminaescobar)  
 [https://soundcloud.com/carmina](https://soundcloud.com/carmina)  
 
 __Camille Mandoki__  
-[https://soundcloud.com/billiemandoki](https://soundcloud.com/billiemandoki)  
+[https://soundcloud.com/billie-mandoki](https://soundcloud.com/billie-mandoki)  
 [https://www.facebook.com/billiemandoki](https://www.facebook.com/billiemandoki)  
 
-__Carmina Escobar__  
-[http://carminaescobar.com/](http://carminaescobar.com/)  
-[https://vimeo.com/carminaescobar](https://vimeo.com/carminaescobar)  
-[https://soundcloud.com/carmina](https://soundcloud.com/carmina)  
-
 __Carole Chargueron (France/México)__  
-Composer - Sound artist  
+Compositora - Artista Sonora - Experimental   
 [https://soundcloud.com/carole-chargueron](https://soundcloud.com/carole-chargueron)  
 [https://vimeo.com/user6423207](https://vimeo.com/user6423207)  
 
 __Concepción Huerta__  
-[https://soundcloud.com/cncpcn](https://soundcloud.com/cncpcn)  
+Compositora - Experimental - Colaboración  
+[https://soundcloud.com/cncpcn](https://soundcloud.com/cncpcn) 
+[https://concepcionhuerta.bandcamp.com/](https://concepcionhuerta.bandcamp.com/)  
 
 __Daniela Falcón__  
-Artista interdisciplinaria  
+Artista interdisciplinaria - Improvisación - Cuerpo   
 [https://vimeo.com/user19829910](https://vimeo.com/user19829910)  
 [https://www.facebook.com/lunares.destino](https://www.facebook.com/lunares.destino)  
 
 __Elena Castillo__  
+Artista - Diseñadora Sonora - Compositora  
 [https://soundcloud.com/elentric](https://soundcloud.com/elentric)  
 
 __Gabriela Vargas Cetina__  
+Sonido - Música - Danza  
 [https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina](https://sites.google.com/site/proyectomusicaytecnologia/gabriela-vargas_cetina)  
 
 __Invasorix__  
+Grupo de trabajo feminista queer/cuir  
 [http://invasorix.tumblr.com/videos](http://invasorix.tumblr.com/videos)  
 
 __Iracema de Andrade (Brasil/México)__  
+Performer interdisciplinaria - Cello - Investigadora  
 [www.iracemadeandrade.com](http://iracemadeandrade.com)   
 
 __Itzá García__  
+Compositora - Música contemporánea - Investigadora  
 [http://bit.ly/itzagarcia-es](http://bit.ly/itzagarcia-es)  
 [https://soundcloud.com/universoestetico](https://soundcloud.com/universoestetico)  
 
 __Itze Serrano__  
+Escritora  
 [https://armstrongliberado.wordpress.com/author/itzesinele/](https://armstrongliberado.wordpress.com/author/itzesinele/)  
 
 __Itzel Noyz (Naerlot)__  
@@ -134,16 +142,18 @@ Compositora - Cantante - Productora
 [https://www.facebook.com/Naerlot](https://www.facebook.com/Naerlot)  
 
 __Ivonne Hernández__  
+Compositora - Artista Sonora - Música contemporánea  
 [https://ivonnehernandez.pb.online/](https://ivonnehernandez.pb.online/)  
 [https://soundcloud.com/ivonne-hernandez-95474440](https://soundcloud.com/ivonne-hernandez-95474440)  
 
 __Jean Carla Rodea__  
+Performance - Video - Sound  
 [https://www.jeancarlarodea.com](https://www.jeancarlarodea.com)  
 [https://www.facebook.com/jcrodea](https://www.facebook.com/jcrodea)  
 [https://vimeo.com/user4852035](https://vimeo.com/user4852035)  
 
 __Jessica A. Rodríguez__  
-Video - Código - Sonido - Literatura  
+Audio-Visual - Código - Literatura  
 [https://vimeo.com/jessicaarinne](https://vimeo.com/jessicaarinne)  
 [http://andamio.in/](http://andamio.in/)  
 
