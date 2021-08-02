@@ -175,6 +175,13 @@ Compositora - Cantante - artista sonora
 [https://constanzacastagnet.persona.co/](https://constanzacastagnet.persona.co/) 
 
 
+__Constanza Pellicci__  
+Improvisación - Canto y experimentación vocal con técnicas expandidas - Performance  - Escritura  
+[https://constanzapellicci.bandcamp.com/](https://constanzapellicci.bandcamp.com/)  
+[https://www.youtube.com/channel/UCXrncGw21-fRb42UCiL1wZQ](https://www.youtube.com/channel/UCXrncGw21-fRb42UCiL1wZQ)  
+[https://vimeo.com/179968936](https://vimeo.com/179968936) 
+
+
 __Dat García__  
 Compositora - Productora - Intérprete - Multiinstrumentista  
 [https://soundcloud.com/datgarcia-1](https://soundcloud.com/datgarcia-1)  
@@ -210,9 +217,66 @@ Compositora - Diseñadora de sonido
 [https://evelynfrosini.com](https://evelynfrosini.com) 
 
 
+__Fabiana Galante__  
+Pianista - Artista sonora  
+[http://transversalsonora.wixsite.com/transversalsonora/fabiana-galante](http://transversalsonora.wixsite.com/transversalsonora/fabiana-galante) 
+
+
+__Feli Cabrera López__  
+Compositora - Diseñadora Sonora - Investigadora  
+[http://efeceele.com](http://efeceele.com) 
+
+
+__Florencia Curci__  
+Artista sonora - Curadora - baterista  
+[https://florenciacurci.com/](https://florenciacurci.com/)  
+
+
+__Florencia Pajón Páez__  
+Compositora  
+[https://soundcloud.com/user209110604](https://soundcloud.com/user209110604) 
+
+
+__Florencia Ruiz Ferretti__  
+Cantante - Compositora - Banjoísta - Terapeuta del sonido  
+[https://soundcloud.com/florenciaruizferretti/](https://soundcloud.com/florenciaruizferretti/)  
+[http://floruizferretti.blogspot.com.ar/](http://floruizferretti.blogspot.com.ar/) 
+
+
+__Gabi Yaya__  
+Compositora - Artista Sonora - Docente - Investigadora  
+[https://gabiyaya.bandcamp.com/](https://gabiyaya.bandcamp.com/)  
+
+
+__Gabriela Areal__  
+Compositora - cellista - improvisadora  
+[http://arealgabriela.tumblr.com](http://arealgabriela.tumblr.com)  
+[https://arealcabado.bandcamp.com/](https://arealcabado.bandcamp.com/)   
+[https://www.musicaexperimentaldecamara.com/](https://www.musicaexperimentaldecamara.com/)  
+
+
+__Guillermina Etkin__  
+Compositora - Pianista/Sintetista  
+[http://www.guillerminaetkin.com.ar/](http://www.guillerminaetkin.com.ar/)  
+[https://soundcloud.com/guillerminaetkin](https://soundcloud.com/guillerminaetkin) 
+
+
+__Inés Terra__  
+Voz - Performance - Improvisación - Composición  
+[https://soundcloud.com/ines-terra](https://soundcloud.com/ines-terra)  
+[http://cargocollective.com/inesterra](http://cargocollective.com/inesterra) 
+
+
+__Julia Arbós__  
+Compositora - Cantautora  
+[https://soundcloud.com/juliarbos](https://soundcloud.com/juliarbos)  
+[www.juliarbos.flavors.me](www.juliarbos.flavors.me)
+
+
 __Laura Andel__  
 Compositora - Artista sonora / Composer - Sound artist  
 [http://www.lauraandel.com](http://www.lauraandel.com)  
+
 
 __Ligia Liberatori__  
 Cantante - Improvisadora  
@@ -235,17 +299,9 @@ Compositora - Música electroacústica
 [https://soundcloud.com/rocio-cano](https://soundcloud.com/rocio-cano)
 
 
-
-
-
 __Malena Graciosi__  
 Compositora - Diseño sonoro para espectáculos teatrales - saxofonista  
 [https://sonidoescenico.com/mg/](https://sonidoescenico.com/mg/)  
-
-
-
-
- 
 
 
 __Rosa Nolly__  
@@ -253,26 +309,9 @@ Saxofonista - Compositora
 [https://www.facebook.com/rosa.nolly.bustos](https://www.facebook.com/rosa.nolly.bustos)
 
 
-
-
-
-
-
-
 __Rocío Pérez Belarra__  
 Improvisadora - Creadora en imagen y sonido - Arpista  
 [https://vimeo.com/user2160147](https://vimeo.com/user2160147)  
-
-
-__Florencia Curci__  
-Artista sonora - Curadora - baterista  
-[https://florenciacurci.com/](https://florenciacurci.com/)  
-
-
-__Guillermina Etkin__  
-Compositora - Pianista/Sintetista  
-[http://www.guillerminaetkin.com.ar/](http://www.guillerminaetkin.com.ar/)  
-[https://soundcloud.com/guillerminaetkin](https://soundcloud.com/guillerminaetkin)  
 
 
 __Maia Koenig__  
@@ -281,39 +320,14 @@ Electrónica DIY - 8-bit music- Experimental
 [https://maiakoenig.bandcamp.com/](https://maiakoenig.bandcamp.com/)  
 
 
- 
-
-
 __Patricia Martínez__  
 Compositora - Artista interdisciplinaria - Pianista  
 [http://patriciamartinez.com.ar/bio/](http://patriciamartinez.com.ar/bio/)  
-
-
- 
-
 
 __Romina Casile__  
 Artista visual y sonora.  
 [http://www.rominacasile.com ](http://www.rominacasile.com)  
 
-
-__Gabriela Areal__  
-Compositora - cellista - improvisadora  
-[http://arealgabriela.tumblr.com](http://arealgabriela.tumblr.com)  
-[https://arealcabado.bandcamp.com/](https://arealcabado.bandcamp.com/)   
-[https://www.musicaexperimentaldecamara.com/](https://www.musicaexperimentaldecamara.com/)  
-
-__Florencia Pajón Páez__  
-Compositora  
-[https://soundcloud.com/user209110604](https://soundcloud.com/user209110604)  
-
-
-
-
-__Julia Arbós__  
-Compositora - Cantautora  
-[https://soundcloud.com/juliarbos](https://soundcloud.com/juliarbos)  
-[www.juliarbos.flavors.me](www.juliarbos.flavors.me)
 
 __Natalia Perelman__  
 Sonidista - Artista sonora  
@@ -347,10 +361,7 @@ Compositora
 [https://www.natalia-solomonoff.com](https://www.natalia-solomonoff.com)  
 [https://soundcloud.com/natalia-solomonoff](https://soundcloud.com/natalia-solomonoff)  
 
-__Inés Terra__  
-Voz - Performance - Improvisación - Composición  
-[https://soundcloud.com/ines-terra](https://soundcloud.com/ines-terra)  
-[http://cargocollective.com/inesterra](http://cargocollective.com/inesterra)  
+ 
 
 __Maria de los Angeles “Cuca” Esteves__  
 [https://soundcloud.com/cucaesteves](https://soundcloud.com/cucaesteves)  
@@ -358,9 +369,7 @@ __Maria de los Angeles “Cuca” Esteves__
 __Lorena Paz “Lola Pax”__  
 [https://www.youtube.com/user/lolapax](https://www.youtube.com/user/lolapax)  
 
-__Fabiana Galante__  
-Pianista - Artista sonora  
-[http://transversalsonora.wixsite.com/transversalsonora/fabiana-galante](http://transversalsonora.wixsite.com/transversalsonora/fabiana-galante)  
+ 
 
 __Paula Shocron__  
 Pianista - Compositora - Improvisadora - Performer  
@@ -382,10 +391,7 @@ Música - Artista sonora - Investigadora
 
 
 
-__Florencia Ruiz Ferretti__  
-Cantante - Compositora - Banjoísta - Terapeuta del sonido  
-[https://soundcloud.com/florenciaruizferretti/](https://soundcloud.com/florenciaruizferretti/)  
-[http://floruizferretti.blogspot.com.ar/](http://floruizferretti.blogspot.com.ar/)  
+ 
 
 
 
@@ -418,9 +424,7 @@ __Lala Disandro__
 Compositora  
 [https://soundcloud.com/lala-disandro-1](https://soundcloud.com/lala-disandro-1)  
 
-__Feli Cabrera López__  
-Compositora - Diseñadora Sonora - Investigadora  
-[http://efeceele.com](http://efeceele.com)  
+ 
 
 
 
@@ -491,11 +495,7 @@ __Victoria Barca__
 
 
 
-__Constanza Pellicci__  
-Improvisación - Canto y experimentación vocal con técnicas expandidas - Performance  - Escritura  
-[https://constanzapellicci.bandcamp.com/](https://constanzapellicci.bandcamp.com/)  
-[https://www.youtube.com/channel/UCXrncGw21-fRb42UCiL1wZQ](https://www.youtube.com/channel/UCXrncGw21-fRb42UCiL1wZQ)  
-[https://vimeo.com/179968936](https://vimeo.com/179968936)  
+ 
 
 __Selva Aimé Ciai__  
 Artista sonora - Música experimental  
@@ -518,9 +518,7 @@ Música - Experimentadora de sonidos - Compositora - Cantautora
 
 
 
-__Gabi Yaya__  
-Compositora - Artista Sonora - Docente - Investigadora  
-[https://gabiyaya.bandcamp.com/](https://gabiyaya.bandcamp.com/)  
+
 
 
 
