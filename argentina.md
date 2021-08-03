@@ -27,7 +27,7 @@ Compositora - Música de cámara y vocal
 
 __Alma Laprida__  
 Compositora - Improvisadora - Artista sonora  
-[www.almalaprida.com.ar ](www.almalaprida.com.ar)
+[http://almalaprida.wordpress.com](http://almalaprida.wordpress.com)
 
 
 __Ana Foutel__  
@@ -36,10 +36,14 @@ Pianista - Improvisadora- Compositora
 [https://www.youtube.com/watch?v=BMM3-9he-SQ](https://www.youtube.com/watch?v=BMM3-9he-SQ)  
 
 
-
 __Ana Helder__  
 DJ - Productora / DJ - Producer  
 [https://soundcloud.com/ana-helder](https://soundcloud.com/ana-helder)  
+
+
+__Ana Maria Rodriguez__
+Compositora - Performer - Artista sonora
+[www.anamariarodriguez.net](www.anamariarodriguez.net)
 
 
 __Analía Bazán (aka Margo Sol)__  
@@ -68,6 +72,12 @@ DJ
 __Angeles Rojas__  
 Compositora - Pianista  
 [https://soundcloud.com/angelesrojasaguilo](https://soundcloud.com/angelesrojasaguilo)  
+
+
+__Audia Valdez__
+Compositora - Productora - Artista sonora experimental - Performer
+[www.audiavaldez.com](www.audiavaldez.com) 
+[https://audiavaldez.bandcamp.com/](https://audiavaldez.bandcamp.com/)
 
 
 __Aylu__  
@@ -196,6 +206,14 @@ Cello - Electrónica / Cello - Electronics
 [https://soundcloud.com/eliana-rosales-1](https://soundcloud.com/eliana-rosales-1)  
 
 
+__Elisa Sarrot__ 
+Compositora - Docente Investigadora	 	
+[https://www.youtube.com/channel/UC1qvY9-t6smZMkcGuGg3Ljg](https://www.youtube.com/channel/UC1qvY9-t6smZMkcGuGg3Ljg)	 	 	 	
+[https://soundcloud.com/elisa-sarrot/](https://soundcloud.com/elisa-sarrot/)	 	 	 	
+[https://youtu.be/HKcX6k2gWFc](https://youtu.be/HKcX6k2gWFc)	 	 	 	
+[https://youtu.be/vwajyo4L15s](https://youtu.be/vwajyo4L15s)
+
+
 __Elsa Justel__  
 Compositora (música electroacústica) / Composer (electroacoustic music)  
 [http://www.fundestellos.org/Bio.htm](http://www.fundestellos.org/Bio.htm)  
@@ -273,6 +291,13 @@ __Inés Terra__
 Voz - Performance - Improvisación - Composición  
 [https://soundcloud.com/ines-terra](https://soundcloud.com/ines-terra)  
 [http://cargocollective.com/inesterra](http://cargocollective.com/inesterra) 
+
+
+__Inti Pujol__ 
+Activista - Artista visual - Performer Compositora sonora experimental
+[https://pueblonuevo.cl/]catalogo/gran-madre/(https://pueblonuevo.cl/catalogo/gran-madre/)
+[https://intidelcipres.bandcamp.com/](https://intidelcipres.bandcamp.com/) 
+[http://www.boladenieve.org.ar/artista/5395/pujol-inti](http://www.boladenieve.org.ar/artista/5395/pujol-inti) 
 
 
 __Jenny Maritza Ramírez Osorio (Jennitza)__  
@@ -414,6 +439,12 @@ Cantante - Productora - Artista sonora
 [http://minicomponente.bandcamp.com](http://minicomponente.bandcamp.com)  
 
 
+__Paula Garcia__
+Productora - Compositora - Diseñadora de sonido 
+[https://sobrenadar.bandcamp.com](https://sobrenadar.bandcamp.com)
+[https://instagram.com/sobrenadar](https://instagram.com/sobrenadar)
+
+
 __Paula Guersenzvaig__  
 Técnica de sonido - Artista sonora - Investigadora  
 [http://cargocollective.com/paulaguersenzvaig](http://cargocollective.com/paulaguersenzvaig) 
@@ -478,8 +509,6 @@ Artista Sonora - Baterista - Improvisadora
 [https://www.tatianaheuman.com/](https://www.tatianaheuman.com/)  
 
  
-
-
 __Valentina Gadagñotto__  
 Compositora - Cantante  
 [https://soundcloud.com/valentina-gadagnotto?ref=clipboard](https://soundcloud.com/valentina-gadagnotto?ref=clipboard)  
@@ -506,6 +535,7 @@ Cellista - Improvisadora - Compositora
 
 __Yanina Castagnino__  
 [https://soundcloud.com/yanina-castagnino](https://soundcloud.com/yanina-castagnino)  
+
 
 
 
