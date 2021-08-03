@@ -74,8 +74,8 @@ Compositora - Pianista
 [https://soundcloud.com/angelesrojasaguilo](https://soundcloud.com/angelesrojasaguilo)  
 
 
-__Audia Valdez__
-Compositora - Productora - Artista sonora experimental - Performer
+__Audia Valdez__  
+Compositora - Productora - Artista sonora experimental - Performer  
 [www.audiavaldez.com](www.audiavaldez.com) 
 [https://audiavaldez.bandcamp.com/](https://audiavaldez.bandcamp.com/)
 
@@ -206,7 +206,7 @@ Cello - Electrónica / Cello - Electronics
 [https://soundcloud.com/eliana-rosales-1](https://soundcloud.com/eliana-rosales-1)  
 
 
-__Elisa Sarrot__ 
+__Elisa Sarrot__  
 Compositora - Docente Investigadora	 	
 [https://www.youtube.com/channel/UC1qvY9-t6smZMkcGuGg3Ljg](https://www.youtube.com/channel/UC1qvY9-t6smZMkcGuGg3Ljg)	 	 	 	
 [https://soundcloud.com/elisa-sarrot/](https://soundcloud.com/elisa-sarrot/)	 	 	 	
@@ -293,8 +293,8 @@ Voz - Performance - Improvisación - Composición
 [http://cargocollective.com/inesterra](http://cargocollective.com/inesterra) 
 
 
-__Inti Pujol__ 
-Activista - Artista visual - Performer - Compositora sonora experimental
+__Inti Pujol__  
+Activista - Artista visual - Performer - Compositora sonora experimental  
 [https://pueblonuevo.cl/catalogo/gran-madre/](https://pueblonuevo.cl/catalogo/gran-madre/)
 [https://intidelcipres.bandcamp.com/](https://intidelcipres.bandcamp.com/) 
 [http://www.boladenieve.org.ar/artista/5395/pujol-inti](http://www.boladenieve.org.ar/artista/5395/pujol-inti) 
@@ -439,8 +439,8 @@ Cantante - Productora - Artista sonora
 [http://minicomponente.bandcamp.com](http://minicomponente.bandcamp.com)  
 
 
-__Paula Garcia__
-Productora - Compositora - Diseñadora de sonido 
+__Paula Garcia__  
+Productora - Compositora - Diseñadora de sonido  
 [https://sobrenadar.bandcamp.com](https://sobrenadar.bandcamp.com)
 [https://instagram.com/sobrenadar](https://instagram.com/sobrenadar)
 
@@ -499,6 +499,7 @@ Diseñadora de sonido - Ingeniera en audio - Productora
 
 
 __Tatiana Cuoco__  
+Artista audiovisual y sonora
 [https://vimeo.com/tcuoco](https://vimeo.com/tcuoco)  
 [http://seescuchanvivas.tumblr.com/](http://seescuchanvivas.tumblr.com/)  
 [http://tatianacuoco.tumblr.com/](http://tatianacuoco.tumblr.com/) 
@@ -522,9 +523,11 @@ Compositora - Pianista - Docente
 
 
 __Victoria Barca__  
+Artista  
 [https://abyssjuke.bandcamp.com/album/blop](https://abyssjuke.bandcamp.com/album/blop)  
 [https://vicbang.bandcamp.com/](https://vicbang.bandcamp.com/)  
 [https://soundcloud.com/user-681521771](https://soundcloud.com/user-681521771)  
+
 
 __Violeta García__  
 Cellista - Improvisadora - Compositora  
@@ -534,6 +537,7 @@ Cellista - Improvisadora - Compositora
 
 
 __Yanina Castagnino__  
+Compositora  
 [https://soundcloud.com/yanina-castagnino](https://soundcloud.com/yanina-castagnino)  
 
 
