@@ -16,5 +16,5 @@ Contrabajista - Creadora sonora - Escritora - Improvisadora - Deep Listening
 
 __Marissa Chapman__
 Experimentación - Audiovisuales
-https://marissaechw.wordpress.com/ (http://marissaechw.wordpress.com/)
+[https://marissaechw.wordpress.com/] (http://marissaechw.wordpress.com/)
 
