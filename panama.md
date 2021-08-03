@@ -14,7 +14,7 @@ __Mar Alzamora__
 Contrabajista - Creadora sonora - Escritora - Improvisadora - Deep Listening  
 [http://maralzamora.net/](http://maralzamora.net/)   
 
-__Marissa Chapman__
-Experimentación - Audiovisuales
+__Marissa Chapman__  
+Experimentación - Audiovisuales  
 [https://marissaechw.wordpress.com/] (http://marissaechw.wordpress.com/)
 
