@@ -261,10 +261,24 @@ Compositora - Pianista/Sintetista
 [https://soundcloud.com/guillerminaetkin](https://soundcloud.com/guillerminaetkin) 
 
 
+__Heráclita Efesa__  
+Artista  
+Mi Composición: [https://soundcloud.com/user-163243490](https://soundcloud.com/user-163243490)  
+Mi Blog: [https://blogelritmo.wordpress.com/](https://blogelritmo.wordpress.com/)  
+Videos: [https://vimeo.com/user58277171](https://vimeo.com/user58277171)  
+Mi Radio: [https://www.facebook.com/RadioBullicio](https://www.facebook.com/RadioBullicio)  
+
+
 __Inés Terra__  
 Voz - Performance - Improvisación - Composición  
 [https://soundcloud.com/ines-terra](https://soundcloud.com/ines-terra)  
 [http://cargocollective.com/inesterra](http://cargocollective.com/inesterra) 
+
+
+__Jenny Maritza Ramírez Osorio (Jennitza)__  
+Compositora - Clarinetista - Diseñadora de sonido  
+[https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
+[https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/) 
 
 
 __Julia Arbós__  
@@ -273,9 +287,19 @@ Compositora - Cantautora
 [www.juliarbos.flavors.me](www.juliarbos.flavors.me)
 
 
+__Lala Disandro__  
+Compositora  
+[https://soundcloud.com/lala-disandro-1](https://soundcloud.com/lala-disandro-1)
+
+
 __Laura Andel__  
 Compositora - Artista sonora / Composer - Sound artist  
 [http://www.lauraandel.com](http://www.lauraandel.com)  
+
+
+__La Walichera__  
+Compositora - Productora - Intérprete - Bailarina  
+[https://soundcloud.com/la-walichera](https://soundcloud.com/la-walichera) 
 
 
 __Ligia Liberatori__  
@@ -289,29 +313,35 @@ Productora y Dj EBM Electro Industrial
 [https://soundcloud.com/taucetiana](https://soundcloud.com/taucetiana)  
 
 
-__Mariela Arzadun__  
-Compositora - Música electrónica / Composer (electronic music)  
-[https://soundcloud.com/florconvenas](https://soundcloud.com/florconvenas)
+__Lorena Paz “Lola Pax”__  
+[https://www.youtube.com/user/lolapax](https://www.youtube.com/user/lolapax)  
 
 
-__Rocío Cano Valiño__  
-Compositora - Música electroacústica  
-[https://soundcloud.com/rocio-cano](https://soundcloud.com/rocio-cano)
+__Luciana Bass__  
+Guitarrista - Artista sonora  
+[https://soundcloud.com/luchibass](https://soundcloud.com/luchibass)  
 
 
-__Malena Graciosi__  
-Compositora - Diseño sonoro para espectáculos teatrales - saxofonista  
-[https://sonidoescenico.com/mg/](https://sonidoescenico.com/mg/)  
+__Luciana Roberto__  
+Luthier experimental - Artista Sonora  
+[https://sonus-ignota.tumblr.com/](https://sonus-ignota.tumblr.com/)  
+[https://www.instagram.com/almenosesraro/](https://www.instagram.com/almenosesraro/)  
 
 
-__Rosa Nolly__  
-Saxofonista - Compositora  
-[https://www.facebook.com/rosa.nolly.bustos](https://www.facebook.com/rosa.nolly.bustos)
+__Lucy Patané__  
+Productora - Compositora - Multi.instrumentista  
+[https://lucypatane.bandcamp.com/](https://lucypatane.bandcamp.com/)  
 
 
-__Rocío Pérez Belarra__  
-Improvisadora - Creadora en imagen y sonido - Arpista  
-[https://vimeo.com/user2160147](https://vimeo.com/user2160147)  
+__Luz Pérez__  
+Música - Experimentadora de sonidos - Compositora - Cantautora  
+[https://soundcloud.com/luzluzperez](https://soundcloud.com/luzluzperez)  
+[https://m.youtube.com/channel/UClV9hOdOua1fPKxTkzDU7Qg](https://m.youtube.com/channel/UClV9hOdOua1fPKxTkzDU7Qg)  
+
+
+__Magdalena Clavijo__  
+Violinista - Improvisadora - Técnica de luces y sonido  
+[https://www.instagram.com/maga.clavijo/](https://www.instagram.com/maga.clavijo/)  
 
 
 __Maia Koenig__  
@@ -320,24 +350,152 @@ Electrónica DIY - 8-bit music- Experimental
 [https://maiakoenig.bandcamp.com/](https://maiakoenig.bandcamp.com/)  
 
 
-__Patricia Martínez__  
-Compositora - Artista interdisciplinaria - Pianista  
-[http://patriciamartinez.com.ar/bio/](http://patriciamartinez.com.ar/bio/)  
+__Malena Graciosi__  
+Compositora - Diseño sonoro para espectáculos teatrales - saxofonista  
+[https://sonidoescenico.com/mg/](https://sonidoescenico.com/mg/)  
 
-__Romina Casile__  
-Artista visual y sonora.  
-[http://www.rominacasile.com ](http://www.rominacasile.com)  
+
+__Maria Heller__  
+Danza - Voz -  Objetos sonoros  
+[https://vimeo.com/122396365](https://vimeo.com/122396365)  
+[https://www.facebook.com/hellmeri](https://www.facebook.com/hellmeri)  
+
+
+__María Cristina Kasem__  
+Compositora  
+[http://www.mariacristina-kasem.com](http://www.mariacristina-kasem.com)
+
+
+__Maria de los Angeles “Cuca” Esteves__  
+[https://soundcloud.com/cucaesteves](https://soundcloud.com/cucaesteves)  
+
+
+__María Teresa Luengo__  
+Compositora  
+
+
+__Mariela Arzadun__  
+Compositora - Música electrónica / Composer (electronic music)  
+[https://soundcloud.com/florconvenas](https://soundcloud.com/florconvenas)
+
+
+__Marta Lambertini__  
+Compositora  
+
+
+__Mene Savasta Alsina__  
+Música - Artista sonora - Investigadora  
+[http://www.menesavasta.com.ar/](http://www.menesavasta.com.ar/)  
+
+
+__Morita Vargas__  
+DJ - Compositora - Productora - Performer  
+[https://soundcloud.com/moritavargas](https://soundcloud.com/moritavargas)  
 
 
 __Natalia Perelman__  
 Sonidista - Artista sonora  
 [https://soundcloud.com/natalia-perelman/sets](https://soundcloud.com/natalia-perelman/sets)  
 
-__Victoria Barca__  
-Artista sonora - Productora - Compositora  
-[https://kitrecs.bandcamp.com/album/lira](https://kitrecs.bandcamp.com/album/lira)  
-[https://abyssjuke.bandcamp.com/album/blop](https://abyssjuke.bandcamp.com/album/blop)  
 
+__Natalia Solomonoff__  
+Compositora  
+[https://www.natalia-solomonoff.com](https://www.natalia-solomonoff.com)  
+[https://soundcloud.com/natalia-solomonoff](https://soundcloud.com/natalia-solomonoff) 
+
+
+__Patricia Martínez__  
+Compositora - Artista interdisciplinaria - Pianista  
+[http://patriciamartinez.com.ar/bio/](http://patriciamartinez.com.ar/bio/) 
+
+
+__Paula Acuña Zustovich__  
+Cantante - Productora - Artista sonora  
+[http://minicomponente.bandcamp.com](http://minicomponente.bandcamp.com)  
+
+
+__Paula Guersenzvaig__  
+Técnica de sonido - Artista sonora - Investigadora  
+[http://cargocollective.com/paulaguersenzvaig](http://cargocollective.com/paulaguersenzvaig) 
+
+
+__Paula Shocron__  
+Pianista - Compositora - Improvisadora - Performer  
+[http://www.paulashocron.com](http://www.paulashocron.com)  
+[https://nendodango.bandcamp.com](https://nendodango.bandcamp.com)  
+
+
+__Rocío Cano Valiño__  
+Compositora - Música electroacústica  
+[https://soundcloud.com/rocio-cano](https://soundcloud.com/rocio-cano)
+
+
+__Rocio Morgenstern__  
+Compositora - Productora - Artista Sonora  
+[http://rociomorgensternmusic.bandcamp.com/](http://rociomorgensternmusic.bandcamp.com/)  
+[https://rociomorgenstern.tumblr.com/](https://rociomorgenstern.tumblr.com/)  
+
+
+__Rocío Pérez Belarra__  
+Improvisadora - Creadora en imagen y sonido - Arpista  
+[https://vimeo.com/user2160147](https://vimeo.com/user2160147) 
+
+
+__Romina Casile__  
+Artista visual y sonora.  
+[http://www.rominacasile.com ](http://www.rominacasile.com) 
+
+
+__Rosa Nolly__  
+Saxofonista - Compositora  
+[https://www.facebook.com/rosa.nolly.bustos](https://www.facebook.com/rosa.nolly.bustos)
+
+ 
+__Selva Aimé Ciai__  
+Artista sonora - Música experimental  
+[https://selvaaime.tumblr.com/](https://selvaaime.tumblr.com/)  
+
+
+__Sol Porro__  
+Productora - Compositora - DJ  
+[https://acuatica.bandcamp.com/](https://acuatica.bandcamp.com/)  
+[https://zeismic.bandcamp.com/](https://zeismic.bandcamp.com/)  
+
+
+__Sol Rezza__  
+Diseñadora de sonido - Ingeniera en audio - Productora  
+[https://solrezza.com](https://solrezza.com) 
+
+
+__Tatiana Cuoco__  
+[https://vimeo.com/tcuoco](https://vimeo.com/tcuoco)  
+[http://seescuchanvivas.tumblr.com/](http://seescuchanvivas.tumblr.com/)  
+[http://tatianacuoco.tumblr.com/](http://tatianacuoco.tumblr.com/) 
+
+
+__Tatiana Heuman__  
+Artista Sonora - Baterista - Improvisadora  
+[https://www.tatianaheuman.com/](https://www.tatianaheuman.com/)  
+
+ 
+
+
+__Valentina Gadagñotto__  
+Compositora - Cantante  
+[https://soundcloud.com/valentina-gadagnotto?ref=clipboard](https://soundcloud.com/valentina-gadagnotto?ref=clipboard)  
+[https://www.youtube.com/channel/UC0mbzck3x5we3dxJG7gbmPg](https://www.youtube.com/channel/UC0mbzck3x5we3dxJG7gbmPg)  
+  
+
+__Valeria Romero__  
+Compositora - Pianista - Docente  
+[https://valeriaromero.com.ar](https://www.valeriaromero.com.ar)  
+[https://youtube.com/ValeriaRomero](https://www.youtube.com/ValeriaRomero)  
+
+
+__Victoria Barca__  
+[https://abyssjuke.bandcamp.com/album/blop](https://abyssjuke.bandcamp.com/album/blop)  
+[https://vicbang.bandcamp.com/](https://vicbang.bandcamp.com/)  
+[https://soundcloud.com/user-681521771](https://soundcloud.com/user-681521771)  
 
 __Violeta García__  
 Cellista - Improvisadora - Compositora  
@@ -346,182 +504,8 @@ Cellista - Improvisadora - Compositora
 [https://tvlrec.com/](https://tvlrec.com/)  
 
 
-
-__Magdalena Clavijo__  
-Violinista - Improvisadora - Técnica de luces y sonido  
-[https://www.instagram.com/maga.clavijo/](https://www.instagram.com/maga.clavijo/)  
-
-__Maria Heller__  
-Danza - Voz -  Objetos sonoros  
-[https://vimeo.com/122396365](https://vimeo.com/122396365)  
-[https://www.facebook.com/hellmeri](https://www.facebook.com/hellmeri)  
-
-__Natalia Solomonoff__  
-Compositora  
-[https://www.natalia-solomonoff.com](https://www.natalia-solomonoff.com)  
-[https://soundcloud.com/natalia-solomonoff](https://soundcloud.com/natalia-solomonoff)  
-
- 
-
-__Maria de los Angeles “Cuca” Esteves__  
-[https://soundcloud.com/cucaesteves](https://soundcloud.com/cucaesteves)  
-
-__Lorena Paz “Lola Pax”__  
-[https://www.youtube.com/user/lolapax](https://www.youtube.com/user/lolapax)  
-
- 
-
-__Paula Shocron__  
-Pianista - Compositora - Improvisadora - Performer  
-[http://www.paulashocron.com](http://www.paulashocron.com)  
-[https://nendodango.bandcamp.com](https://nendodango.bandcamp.com)  
-
-__Paula Acuña Zustovich__  
-Cantante - Productora - Artista sonora  
-[http://minicomponente.bandcamp.com](http://minicomponente.bandcamp.com)  
-
 __Yanina Castagnino__  
 [https://soundcloud.com/yanina-castagnino](https://soundcloud.com/yanina-castagnino)  
-
- 
-
-__Mene Savasta Alsina__  
-Música - Artista sonora - Investigadora  
-[http://www.menesavasta.com.ar/](http://www.menesavasta.com.ar/)  
-
-
-
- 
-
-
-
-__Tatiana Heuman__  
-Artista Sonora - Baterista - Improvisadora  
-[https://www.tatianaheuman.com/](https://www.tatianaheuman.com/)  
-
-
-
-__Luciana Bass__  
-Guitarrista - Artista sonora  
-[https://soundcloud.com/luchibass](https://soundcloud.com/luchibass)  
-
-
-
-__Sol Porro__  
-Productora - Compositora - DJ  
-[https://acuatica.bandcamp.com/](https://acuatica.bandcamp.com/)  
-[https://zeismic.bandcamp.com/](https://zeismic.bandcamp.com/)  
-
- 
-
-
-
-__Paula Guersenzvaig__  
-Técnica de sonido - Artista sonora - Investigadora  
-[http://cargocollective.com/paulaguersenzvaig](http://cargocollective.com/paulaguersenzvaig)  
-
-__Lala Disandro__  
-Compositora  
-[https://soundcloud.com/lala-disandro-1](https://soundcloud.com/lala-disandro-1)  
-
- 
-
-
-
- 
-
-
-
-__La Walichera__  
-Compositora - Productora - Intérprete - Bailarina  
-[https://soundcloud.com/la-walichera](https://soundcloud.com/la-walichera)  
-
-__Morita Vargas__  
-DJ - Compositora - Productora - Performer  
-[https://soundcloud.com/moritavargas](https://soundcloud.com/moritavargas)  
-
-__María Cristina Kasem__  
-Compositora  
-[http://www.mariacristina-kasem.com](http://www.mariacristina-kasem.com)  
-
- 
-
-__Lucy Patané__  
-Productora - Compositora - Multi.instrumentista  
-[https://lucypatane.bandcamp.com/](https://lucypatane.bandcamp.com/)  
-
-__María Teresa Luengo__  
-Compositora  
-
-__Marta Lambertini__  
-Compositora  
-
-
-__Rocio Morgenstern__  
-Compositora - Productora - Artista Sonora  
-[http://rociomorgensternmusic.bandcamp.com/](http://rociomorgensternmusic.bandcamp.com/)  
-[https://rociomorgenstern.tumblr.com/](https://rociomorgenstern.tumblr.com/)  
-
-__Jenny Maritza Ramírez Osorio (Jennitza)__  
-Compositora - Clarinetista - Diseñadora de sonido  
-[https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
-[https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/)  
-
-__Luciana Roberto__  
-Luthier experimental - Artista Sonora  
-[https://sonus-ignota.tumblr.com/](https://sonus-ignota.tumblr.com/)  
-[https://www.instagram.com/almenosesraro/](https://www.instagram.com/almenosesraro/)  
-
-__Tatiana Cuoco__  
-[https://vimeo.com/tcuoco](https://vimeo.com/tcuoco)  
-[http://seescuchanvivas.tumblr.com/](http://seescuchanvivas.tumblr.com/)  
-[http://tatianacuoco.tumblr.com/](http://tatianacuoco.tumblr.com/)  
-
-__Heráclita Efesa__  
-Artista  
-Mi Composición: [https://soundcloud.com/user-163243490](https://soundcloud.com/user-163243490)  
-Mi Blog: [https://blogelritmo.wordpress.com/](https://blogelritmo.wordpress.com/)  
-Videos: [https://vimeo.com/user58277171](https://vimeo.com/user58277171)  
-Mi Radio: [https://www.facebook.com/RadioBullicio](https://www.facebook.com/RadioBullicio)  
-
-__Sol Rezza__  
-Diseñadora de sonido - Ingeniera en audio - Productora  
-[https://solrezza.com](https://solrezza.com)  
-
-__Victoria Barca__  
-[https://abyssjuke.bandcamp.com/album/blop](https://abyssjuke.bandcamp.com/album/blop)  
-[https://vicbang.bandcamp.com/](https://vicbang.bandcamp.com/)  
-[https://soundcloud.com/user-681521771](https://soundcloud.com/user-681521771)  
-
-
-
- 
-
-__Selva Aimé Ciai__  
-Artista sonora - Música experimental  
-[https://selvaaime.tumblr.com/](https://selvaaime.tumblr.com/)  
-
-__Valeria Romero__  
-Compositora - Pianista - Docente  
-[https://valeriaromero.com.ar](https://www.valeriaromero.com.ar)  
-[https://youtube.com/ValeriaRomero](https://www.youtube.com/ValeriaRomero)     
-
-__Valentina Gadagñotto__  
-Compositora - Cantante  
-[https://soundcloud.com/valentina-gadagnotto?ref=clipboard](https://soundcloud.com/valentina-gadagnotto?ref=clipboard)  
-[https://www.youtube.com/channel/UC0mbzck3x5we3dxJG7gbmPg](https://www.youtube.com/channel/UC0mbzck3x5we3dxJG7gbmPg)  
-
-__Luz Pérez__  
-Música - Experimentadora de sonidos - Compositora - Cantautora  
-[https://soundcloud.com/luzluzperez](https://soundcloud.com/luzluzperez)  
-[https://m.youtube.com/channel/UClV9hOdOua1fPKxTkzDU7Qg](https://m.youtube.com/channel/UClV9hOdOua1fPKxTkzDU7Qg)  
-
-
-
-
-
-
-
 
 
 
