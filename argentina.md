@@ -294,8 +294,8 @@ Voz - Performance - Improvisación - Composición
 
 
 __Inti Pujol__ 
-Activista - Artista visual - Performer Compositora sonora experimental
-[https://pueblonuevo.cl/]catalogo/gran-madre/(https://pueblonuevo.cl/catalogo/gran-madre/)
+Activista - Artista visual - Performer - Compositora sonora experimental
+[https://pueblonuevo.cl/catalogo/gran-madre/](https://pueblonuevo.cl/catalogo/gran-madre/)
 [https://intidelcipres.bandcamp.com/](https://intidelcipres.bandcamp.com/) 
 [http://www.boladenieve.org.ar/artista/5395/pujol-inti](http://www.boladenieve.org.ar/artista/5395/pujol-inti) 
 
