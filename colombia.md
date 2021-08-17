@@ -48,7 +48,7 @@ __Alba Fernanda Triana__
 [http://www.albatriana.com/](http://www.albatriana.com/)  
 [http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html](http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html)
 
-__Feli Cabrera López__  
+__Feli Cabrera López aka Efe Ce Ele__  
 [http://efeceele.com](http://efeceele.com)  
 
 __Carolina Gamboa Hoyos__  
@@ -56,7 +56,7 @@ __Carolina Gamboa Hoyos__
 
 __Johanna María Carvajal__  
 
-__Adriana Maria Gutierrez Grisales AKA : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
+__Adriana Maria Gutierrez Grisales aka : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
 DJ - Profesora de música y DJs - Productora - Tecnologa en informatica musical - Coleccionista de musica en vinilo  
 [www.arideejay.com](www.arideejay.com)  
 
@@ -147,7 +147,7 @@ __Jacqueline Ocampo Cruz__
 jandreita1@gmail.com  
 [http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
 
-__Juliana Ortigoza Duràn__  
+__Juliana Ortigoza Durán__  
 Compositora  
 solesygirasoles4@hotmail.com  
 [https://soundcloud.com/juliana-ortigoza](https://soundcloud.com/juliana-ortigoza)  
