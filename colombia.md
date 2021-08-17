@@ -10,6 +10,8 @@ Regresar al índice por país](./basededatos.html)
 
 ## COLOMBIA  
 
+__Adriana Guzmán__  
+
 __Ana María Romano Gómez__  
 [https://soundcloud.com/anamariaromano](https://soundcloud.com/anamariaromano)  
 
@@ -17,7 +19,7 @@ __Claudia Robles__
 [http://www.claudearobles.de/](http://www.claudearobles.de/)  
 
 __Diana Astrid Ramírez Sánchez__  
-Compositora - Artista sonora / Composer (electroacoustic music) - Bajista
+Compositora - Artista sonora / Composer (electroacoustic music) - Bajista  
 [https://soundcloud.com/dianitabass](https://soundcloud.com/dianitabass)  
 [https://vimeo.com/girlbass](https://vimeo.com/girlbass)  
 
@@ -28,8 +30,6 @@ __Camila Lopez__
 [https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
 
 __Natalia Sánchez Montealegre__  
-
-__Adriana Guzmán__  
 
 __Melissa Vargas Franco__  
 Compositora | Intérprete | Improvisadora  
