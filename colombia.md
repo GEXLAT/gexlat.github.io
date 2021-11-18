@@ -11,9 +11,42 @@ layout: default
 ## COLOMBIA  
 
 __Adriana Guzmán__  
+Compositora - Docente  
 
-__Ana María Romano Gómez__  
+__Adriana Maria Gutierrez Grisales aka: Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
+DJ - Docente - Productora - Tecnóloga en informatica musical - Coleccionista de musica en vinilo  
+[www.arideejay.com](www.arideejay.com)  
+
+__Alba Fernanda Triana__  
+Compositora - Artista sonora  
+[http://www.albatriana.com/](http://www.albatriana.com/)  
+[http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html](http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html)  
+
+__Alba Lucía Potes__  
+Compositora  
+[http://albapotes.com/index.htm](http://albapotes.com/index.htm)  
+
+__Alexandra Calderón__   
+
+__Alexandra Cárdenas__  
+Compositora - Programadora - Improvisadora - Live coder  
+[http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas](http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas)  
+
+__Alexandra Gelis__  
+Artista multimedia  
+[http://www.alexandragelis.com/](http://www.alexandragelis.com/)  
+
+__Ana María Romano G__  
+Compositora - Artista sonora - Artista interdisciplinar - Improvisadora  
 [https://soundcloud.com/anamariaromano](https://soundcloud.com/anamariaromano)  
+
+__Ana María Ruiz Valencia__  
+Curadora - Improvisadora  
+[http://cargocollective.com/anamariaruiz](http://cargocollective.com/anamariaruiz)  
+
+__Ángela Jiménez Arias__  
+Artista radiofónica - Artista sonora  
+[https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas](https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas)  
 
 __Claudia Robles__  
 [http://www.claudearobles.de/](http://www.claudearobles.de/)  
@@ -44,10 +77,6 @@ Músico- Canto Lírico - Artista Sonora - Improvisadora - Productora - DJ
 [https://www.facebook.com/diana.medina.501598](https://www.facebook.com/diana.medina.501598)  
 [https://dcmedina1543.wixsite.com/2204](https://dcmedina1543.wixsite.com/2204)  
 
-__Alba Fernanda Triana__  
-[http://www.albatriana.com/](http://www.albatriana.com/)  
-[http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html](http://www.cayambismusicpress.com/Cayambis-Music-Press-talks-with-Alba-Fernanda-Triana-s/1914.html)
-
 __Feli Cabrera López aka Efe Ce Ele__  
 [http://efeceele.com](http://efeceele.com)  
 
@@ -55,10 +84,6 @@ __Carolina Gamboa Hoyos__
 [https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215](https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215)  
 
 __Johanna María Carvajal__  
-
-__Adriana Maria Gutierrez Grisales aka : Ari Dj, La Dj De Los Vinilos, ELECTROPIKA__  
-DJ - Profesora de música y DJs - Productora - Tecnologa en informatica musical - Coleccionista de musica en vinilo  
-[www.arideejay.com](www.arideejay.com)  
 
 __Margarita Ardila aka mandarinavozenoff__  
 Maker Coordinadora y Tallerista en SONORARTEC LAB  
@@ -73,17 +98,8 @@ Compositora en  AUDIOGRAFEMAS
 __Carolina Noguera__  
 [https://soundcloud.com/carolina-noguera-palau](https://soundcloud.com/carolina-noguera-palau)  
 
-__Alexandra Cárdenas__  
-[http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas](http://cargocollective.com/tiemposdelruido/Alexandra-Cardenas)  
-
 __Catalina Peralta__  
 [http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta](http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta)  
-
-__Alba Lucía Potes__  
-[http://albapotes.com/index.htm](http://albapotes.com/index.htm)  
-
-__Alexandra Gelis__
-[http://www.alexandragelis.com/](http://www.alexandragelis.com/)  
 
 __Viviana Ramírez__  
 [https://baulmed.bandcamp.com/track/bavl](https://baulmed.bandcamp.com/track/bavl)  
@@ -102,9 +118,6 @@ __Diana María Restrepo Restrepo__
 __Beatriz Eugenia Díaz__  
 [http://beatrizeugeniadiaz.tumblr.com/](http://beatrizeugeniadiaz.tumblr.com/)  
 
-__Ana María Ruiz Valencia__  
-[http://cargocollective.com/anamariaruiz](http://cargocollective.com/anamariaruiz)  
-
 __Ximena Alarcón__  
 [http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
 
@@ -115,9 +128,6 @@ __Luisa Fernanda Arias Niño__
 
 __María Juliana Soto__  
 [http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
-
-__Ángela Jiménez Arias__  
-[https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas](https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas)  
 
 __Carmen Elvira Brigard__    
 
@@ -136,8 +146,6 @@ Magíster en Artes Plásticas y Visuales - Artista Sonora
 __Jaidy Diaz__  
 Artista sonora   
 [http://enlapuntadelalengu4.wixsite.com/misitio](http://enlapuntadelalengu4.wixsite.com/misitio)  
-
-__Alexandra Calderón__   
 
 __Jacqueline Ocampo Cruz__   
 [http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
