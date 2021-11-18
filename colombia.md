@@ -36,7 +36,7 @@ __Alexandra Gelis__
 Artista multimedia  
 [http://www.alexandragelis.com/](http://www.alexandragelis.com/)  
 
-__Ana María Romano G__  
+__Ana María Romano G.__  
 Compositora - Artista sonora - Artista interdisciplinar - Improvisadora  
 [https://soundcloud.com/anamariaromano](https://soundcloud.com/anamariaromano)  
 
@@ -48,19 +48,67 @@ __Ángela Jiménez Arias__
 Artista radiofónica - Artista sonora  
 [https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas](https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas)  
 
+__Beatriz Eugenia Díaz__  
+Artista plástica y sonora
+[http://beatrizeugeniadiaz.tumblr.com/](http://beatrizeugeniadiaz.tumblr.com/)  
+
+__Camila Lopez__  
+Compositora  
+[https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
+
+__Carmen Elvira Brigard__  
+Artista plástica - Cantante  
+
+__Carolina Gamboa Hoyos__  
+Directora coral - Docente  
+[https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215](https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215)  
+
+__Carolina Noguera__  
+Compositora - Docente  
+[https://soundcloud.com/carolina-noguera-palau](https://soundcloud.com/carolina-noguera-palau)  
+
+__Catalina Peralta__  
+Compositora - Docente  
+[http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta](http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta)  
+
+__Cielo Vargas Gómez__  
+Doctora en Arte Público - Docente - Investigadora - Exploradora sonora  
+[www.cielovargas.com](https://cielovargas.com)  
+[https://soundcloud.com/cielo-vg](https://soundcloud.com/cielo-vg)  
+
 __Claudia Robles__  
+Artista audiovisual y multimedia  
 [http://www.claudearobles.de/](http://www.claudearobles.de/)  
 
 __Diana Astrid Ramírez Sánchez__  
-Compositora - Artista sonora / Composer (electroacoustic music) - Bajista  
+Compositora - Artista sonora - Bajista  
 [https://soundcloud.com/dianitabass](https://soundcloud.com/dianitabass)  
 [https://vimeo.com/girlbass](https://vimeo.com/girlbass)  
 
+__Diana María Restrepo Restrepo__  
+Artista sonora - Performer  
+[http://dianarestrepo.co/](http://dianarestrepo.co/)  
+
+__Diana Medina Prieto__  
+Música - Canto lírico - Artista Sonora - Improvisadora - Productora - DJ  
+[https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura](https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura)  
+[https://www.facebook.com/diana.medina.501598](https://www.facebook.com/diana.medina.501598)  
+[https://dcmedina1543.wixsite.com/2204](https://dcmedina1543.wixsite.com/2204)  
+
+__Elizabeth Polanco Reyes__  
+Artista sonora  
+[https://elizabethpolanco95.wordpress.com/](https://elizabethpolanco95.wordpress.com/)  
+
+__Falon Cañón__  
+Artista sonora - Circuit Bending - Noiser  
+[https://www.instagram.com/faaloon/](https://www.instagram.com/faaloon/)  
+
+__Isabel González__  
+Compositora electroacústica - Violinista  
+[https://soundcloud.com/isomoth](https://soundcloud.com/isomoth)  
+
 __Natalia Valencia__  
 [https://soundcloud.com/nataliavalencia](https://soundcloud.com/nataliavalencia)  
-
-__Camila Lopez__  
-[https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
 
 __Natalia Sánchez Montealegre__  
 
@@ -71,17 +119,8 @@ Compositora | Intérprete | Improvisadora
 __Michele Abondano__  
 [https://micheleabondano.com/](https://micheleabondano.com/)  
 
-__Diana Medina Prieto__  
-Músico- Canto Lírico - Artista Sonora - Improvisadora - Productora - DJ  
-[https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura](https://tvlrec.bandcamp.com/album/tvl-037-materia-oscura)  
-[https://www.facebook.com/diana.medina.501598](https://www.facebook.com/diana.medina.501598)  
-[https://dcmedina1543.wixsite.com/2204](https://dcmedina1543.wixsite.com/2204)  
-
 __Feli Cabrera López aka Efe Ce Ele__  
 [http://efeceele.com](http://efeceele.com)  
-
-__Carolina Gamboa Hoyos__  
-[https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215](https://musica.uniandes.edu.co/?option=com_content&task=category&sectionid=20&id=191&Itemid=215)  
 
 __Johanna María Carvajal__  
 
@@ -95,16 +134,8 @@ Compositora en  AUDIOGRAFEMAS
 [https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1](https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1)  
 [https://www.youtube.com/watch?v=8Y0zZYE11-E](https://www.youtube.com/watch?v=8Y0zZYE11-E)  
 
-__Carolina Noguera__  
-[https://soundcloud.com/carolina-noguera-palau](https://soundcloud.com/carolina-noguera-palau)  
-
-__Catalina Peralta__  
-[http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta](http://www.banrepcultural.org/blaavirtual/biografias/catalina-peralta)  
-
 __Viviana Ramírez__  
 [https://baulmed.bandcamp.com/track/bavl](https://baulmed.bandcamp.com/track/bavl)  
-
-__Falon Cañón__  
 
 __Violeta Cruz__  
 [http://violetacruz.com/](http://violetacruz.com/)  
@@ -112,27 +143,13 @@ __Violeta Cruz__
 __Sylvia Jaimes__  
 [http://sylviajaimes.blogspot.com.ar/](http://sylviajaimes.blogspot.com.ar/)  
 
-__Diana María Restrepo Restrepo__  
-[http://dianarestrepo.co/](http://dianarestrepo.co/)  
-
-__Beatriz Eugenia Díaz__  
-[http://beatrizeugeniadiaz.tumblr.com/](http://beatrizeugeniadiaz.tumblr.com/)  
-
 __Ximena Alarcón__  
 [http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
-
-__Isabel González__  
-[https://soundcloud.com/isomoth](https://soundcloud.com/isomoth)  
 
 __Luisa Fernanda Arias Niño__  
 
 __María Juliana Soto__  
 [http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
-
-__Carmen Elvira Brigard__    
-
-__Elizabeth Polanco Reyes__  
-[https://elizabethpolanco95.wordpress.com/](https://elizabethpolanco95.wordpress.com/)  
 
 __Lina Bautista__  
 [https://soundcloud.com/linalab](https://soundcloud.com/linalab)  
@@ -162,11 +179,6 @@ __Jenny Maritza Ramírez Osorio (Jennitza)__
 Compositora - Clarinetista - Diseñadora de sonido  
 [https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
 [https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/)  
-
-__Cielo Vargas Gómez__  
-Doctora en Arte Público - Docente - Investigadora - Exploradora sonora
-[www.cielovargas.com](https://cielovargas.com)  
-[https://soundcloud.com/cielo-vg](https://soundcloud.com/cielo-vg)  
 
 __Rossana Uribe Rodríguez (Medellín)__  
 Artista audiovisual - Gestora cultural - Productora sonora  
