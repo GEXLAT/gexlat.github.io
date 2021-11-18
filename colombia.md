@@ -37,7 +37,7 @@ Artista multimedia
 [http://www.alexandragelis.com/](http://www.alexandragelis.com/)  
 
 __Ana María Romano G.__  
-Compositora - Artista sonora - Artista interdisciplinar - Improvisadora  
+Compositora - Artista sonora / Interdisciplinar - Improvisadora - Docente    
 [https://soundcloud.com/anamariaromano](https://soundcloud.com/anamariaromano)  
 
 __Ana María Ruiz Valencia__  
@@ -55,6 +55,11 @@ Artista plástica y sonora
 __Camila Lopez__  
 Compositora  
 [https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
+
+__Caperooza__  
+Live Act - Productoras - Cantautoras  
+[https://www.instagram.com/caperooza/](https://www.instagram.com/caperooza/)
+[https://www.youtube.com/watch?v=oYW-tbyDK5M](https://www.youtube.com/watch?v=oYW-tbyDK5M)
 
 __Carmen Elvira Brigard__  
 Artista plástica - Cantante  
@@ -113,7 +118,7 @@ Compositora electroacústica - Violinista
 [https://soundcloud.com/isomoth](https://soundcloud.com/isomoth)  
 
 __Jacqueline Ocampo Cruz__   
-Doctoranda en Ciencias de la Educación - Magister en Nuevas Tecnologías y Multimedia  
+Ciencias de la Educación - Nuevas Tecnologías y Multimedia  
 [http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
 
 __Jaidy Diaz__  
@@ -156,64 +161,67 @@ Magíster en Artes Plásticas y Visuales - Artista Sonora
 [https://soundcloud.com/user-957016126](https://soundcloud.com/user-957016126)  
 [https://vimeo.com/luzaquiceno](https://vimeo.com/luzaquiceno)  
 
-__Natalia Valencia__  
-[https://soundcloud.com/nataliavalencia](https://soundcloud.com/nataliavalencia)  
-
-__Natalia Sánchez Montealegre__  
-
-__Melissa Vargas Franco__  
-Compositora | Intérprete | Improvisadora  
-[https://melissavargasmusica.com/](https://melissavargasmusica.com/)  
-
-__Michele Abondano__  
-[https://micheleabondano.com/](https://micheleabondano.com/)  
-
 __Margarita Ardila aka mandarinavozenoff__  
-Maker Coordinadora y Tallerista en SONORARTEC LAB  
-Autora Editora de OVNI fanCine LINEAS DE CINEMA  
-Compositora en  AUDIOGRAFEMAS  
+Maker - Autora Editora fanCine - Compositora  
 [http://mandarinavno.weebly.com/](http://mandarinavno.weebly.com/)  
 [https://sonorarteclab.weebly.com/](https://sonorarteclab.weebly.com/)  
 [https://ovnifancine.weebly.com/](https://ovnifancine.weebly.com/)  
 [https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1](https://www.youtube.com/channel/UCQpyeGcaOhptLLlJ89tu8Mw/videos?disable_polymer=1)  
 [https://www.youtube.com/watch?v=8Y0zZYE11-E](https://www.youtube.com/watch?v=8Y0zZYE11-E)  
 
-__Viviana Ramírez__  
-[https://baulmed.bandcamp.com/track/bavl](https://baulmed.bandcamp.com/track/bavl)  
-
-__Violeta Cruz__  
-[http://violetacruz.com/](http://violetacruz.com/)  
-
-__Sylvia Jaimes__  
-[http://sylviajaimes.blogspot.com.ar/](http://sylviajaimes.blogspot.com.ar/)  
-
-__Ximena Alarcón__  
-[http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
+__María A. “Mange” Valencia__  
+Saxofón - Clarinete soprano - Clarinete bajo - Improvisadora  
+[https://mangevalencia.portfoliobox.net/](https://mangevalencia.portfoliobox.net/)  
 
 __María Juliana Soto__  
-[http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
+Radio artista - Docente
+[http://noisradio.blogspot.com.co/](http://noisradio.blogspot.com.co/)
+[http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
+
+__María La Marimbera__  
+Marimba - Live Looping - Músicas Tradicionales  
+[https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed](https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed)  
+
+__Melissa Vargas Franco__  
+Compositora - Intérprete - Improvisadora  
+[https://melissavargasmusica.com/](https://melissavargasmusica.com/)  
+
+__Michele Abondano__  
+Compositora - Investigadora - Performer experimental  
+[https://micheleabondano.com/](https://micheleabondano.com/)  
+
+__Natalia Sánchez Montealegre__  
+
+__Natalia Trujillo Arbeláez__  
+Compositora - Cantautora - Docente  
+[https://natytrubh.wixsite.com/portafolio](https://natytrubh.wixsite.com/portafolio)  
+
+__Natalia Valencia__  
+Compositora  
+[https://soundcloud.com/nataliavalencia](https://soundcloud.com/nataliavalencia)  
 
 __Rossana Uribe Rodríguez (Medellín)__  
 Artista audiovisual - Gestora cultural - Productora sonora  
-Directora y productora del laboratorio multimedial ÉTER y de la Plataforma de Escuchas Auditum (y su festival la Semana de la Escucha)  
 [https://vimeo.com/rossaudiovision](https://vimeo.com/rossaudiovision)  
 [https://soundcloud.com/oo_col](https://soundcloud.com/oo_col)  
 [http://eter-lab.net/es/](http://eter-lab.net/es/)  
 [http://auditum.co/](http://auditum.co/)  
 
-__Natalia Trujillo Arbeláez__  
-[https://natytrubh.wixsite.com/portafolio](https://natytrubh.wixsite.com/portafolio)  
+__Sylvia Jaimes__  
+Artista interdisciplinar  
+[http://sylviajaimes.blogspot.com.ar/](http://sylviajaimes.blogspot.com.ar/)  
 
-__María A. “Mange” Valencia__  
-Saxofón - Clarinete soprano - Clarinete bajo - Improvisación  
-Universidad Javeriana (Bogotá)  
-Maestría en Artes Plásticas Electrónicas y del Tiempo Universidad de los Andes (Bogotá)  
-[https://mangevalencia.portfoliobox.net/](https://mangevalencia.portfoliobox.net/)  
+__Violeta Cruz__  
+Compositora - Artista sonora  
+[http://violetacruz.com/](http://violetacruz.com/)  
 
-__María La Marimbera__  
-Marimba - Live Looping - Músicas Tradicionales  
-[https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed](https://www.youtube.com/channel/UCfPvEGMrZln9EKyf1mvsfqA/feed)  
-Twitter: @marialamarimbera  
+__Viviana Ramírez__  
+Productora - Noiser  
+[https://baulmed.bandcamp.com/track/bavl](https://baulmed.bandcamp.com/track/bavl)  
+
+__Ximena Alarcón__  
+Artista sonora  
+[http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
 
 
 
