@@ -119,8 +119,7 @@ __María Juliana Soto__
 __Ángela Jiménez Arias__  
 [https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas](https://etnosonicaradio.wordpress.com/fonosferas/  https://soundcloud.com/siamesesprobetas)  
 
-__Carmen Elvira Brigard__  
-carmenelvirabrigard@yahoo.com  
+__Carmen Elvira Brigard__    
 
 __Elizabeth Polanco Reyes__  
 [https://elizabethpolanco95.wordpress.com/](https://elizabethpolanco95.wordpress.com/)  
@@ -129,32 +128,26 @@ __Lina Bautista__
 [https://soundcloud.com/linalab](https://soundcloud.com/linalab)  
 
 __Luza Quiceno Quiroga__  
-Magíster en Artes Plásticas y Visuales - Artista Sonora  
-luza_quiceno@yahoo.es  
+Magíster en Artes Plásticas y Visuales - Artista Sonora   
 [http://luzaquiceno.wix.com/luza](http://luzaquiceno.wix.com/luza)  
 [https://soundcloud.com/user-957016126](https://soundcloud.com/user-957016126)  
 [https://vimeo.com/luzaquiceno](https://vimeo.com/luzaquiceno)  
 
 __Jaidy Diaz__  
-Artista sonora  
-jaidydiaz@hotmail.com  
+Artista sonora   
 [http://enlapuntadelalengu4.wixsite.com/misitio](http://enlapuntadelalengu4.wixsite.com/misitio)  
 
-__Alexandra Calderón__  
-alexandra@dokuma.tech  
+__Alexandra Calderón__   
 
-__Jacqueline Ocampo Cruz__  
-jandreita1@gmail.com  
+__Jacqueline Ocampo Cruz__   
 [http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
 
 __Juliana Ortigoza Durán__  
-Compositora  
-solesygirasoles4@hotmail.com  
+Compositora   
 [https://soundcloud.com/juliana-ortigoza](https://soundcloud.com/juliana-ortigoza)  
 
 __Laura V. Zapata Cortés__  
-Compositora - Artista sonora - Improvisadora  
-laura.zapata1991@gmail.com  
+Compositora - Artista sonora - Improvisadora    
 [https://soundcloud.com/laura-zapata-231093157](https://soundcloud.com/laura-zapata-231093157)  
 
 __Jenny Maritza Ramírez Osorio (Jennitza)__  
