@@ -57,7 +57,9 @@ Compositora
 [https://soundcloud.com/camilalopez](https://soundcloud.com/camilalopez)  
 
 __Caperooza__  
+Dúo conformado por Laura Katić y Ximena Delat
 Live Act - Productoras - Cantautoras  
+[https://soundcloud.com/caperooza](https://soundcloud.com/caperooza)  
 [https://www.instagram.com/caperooza/](https://www.instagram.com/caperooza/)
 [https://www.youtube.com/watch?v=oYW-tbyDK5M](https://www.youtube.com/watch?v=oYW-tbyDK5M)
 
