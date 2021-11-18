@@ -58,6 +58,7 @@ Compositora
 
 __Carmen Elvira Brigard__  
 Artista plástica - Cantante  
+[https://www.instagram.com/carmenelvirabrigard/](https://www.instagram.com/carmenelvirabrigard/)  
 
 __Carolina Gamboa Hoyos__  
 Directora coral - Docente  
@@ -103,9 +104,57 @@ __Falon Cañón__
 Artista sonora - Circuit Bending - Noiser  
 [https://www.instagram.com/faaloon/](https://www.instagram.com/faaloon/)  
 
+__Feli Cabrera López aka Efe Ce Ele__  
+Artista transmedia
+[http://efeceele.com](http://efeceele.com)  
+
 __Isabel González__  
 Compositora electroacústica - Violinista  
 [https://soundcloud.com/isomoth](https://soundcloud.com/isomoth)  
+
+__Jacqueline Ocampo Cruz__   
+Doctoranda en Ciencias de la Educación - Magister en Nuevas Tecnologías y Multimedia  
+[http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
+
+__Jaidy Diaz__  
+Artista sonora   
+[http://enlapuntadelalengu4.wixsite.com/misitio](http://enlapuntadelalengu4.wixsite.com/misitio)  
+
+__Jenny Maritza Ramírez Osorio (Jennitza)__  
+Compositora - Clarinetista - Diseñadora de sonido  
+[https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
+[https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/)  
+
+__Johanna María Carvajal__  
+Artista Interdisciplinar - Cantante - Yogui - Bioterapeuta - Docente  
+[https://vimeo.com/user6424183](https://vimeo.com/user6424183)
+
+__Juanita Delgado Jaramillo__  
+Musica - Cantante - Compositora - Artista transdisciplinar  
+Magister en artes Vivas  
+[www.juanitadelgado.com](https://www.juanitadelgado.com/)  
+
+__Juliana Ortigoza Durán__  
+Compositora   
+[https://soundcloud.com/juliana-ortigoza](https://soundcloud.com/juliana-ortigoza)  
+
+__Laura V. Zapata Cortés__  
+Compositora - Artista sonora - Improvisadora    
+[https://soundcloud.com/laura-zapata-231093157](https://soundcloud.com/laura-zapata-231093157)  
+
+__Lina Bautista__  
+Compositora - Artista sonora  
+[https://soundcloud.com/linalab](https://soundcloud.com/linalab)  
+
+__Luisa Fernanda Arias Niño__  
+Compositora - Cantante  
+[https://luisafernandacompo.wixsite.com/luiarias](https://luisafernandacompo.wixsite.com/luiarias)  
+
+__Luza Quiceno Quiroga__  
+Magíster en Artes Plásticas y Visuales - Artista Sonora   
+[http://luzaquiceno.wix.com/luza](http://luzaquiceno.wix.com/luza)  
+[https://soundcloud.com/user-957016126](https://soundcloud.com/user-957016126)  
+[https://vimeo.com/luzaquiceno](https://vimeo.com/luzaquiceno)  
 
 __Natalia Valencia__  
 [https://soundcloud.com/nataliavalencia](https://soundcloud.com/nataliavalencia)  
@@ -118,11 +167,6 @@ Compositora | Intérprete | Improvisadora
 
 __Michele Abondano__  
 [https://micheleabondano.com/](https://micheleabondano.com/)  
-
-__Feli Cabrera López aka Efe Ce Ele__  
-[http://efeceele.com](http://efeceele.com)  
-
-__Johanna María Carvajal__  
 
 __Margarita Ardila aka mandarinavozenoff__  
 Maker Coordinadora y Tallerista en SONORARTEC LAB  
@@ -146,39 +190,8 @@ __Sylvia Jaimes__
 __Ximena Alarcón__  
 [http://ximenaalarcon.net/](http://ximenaalarcon.net/)  
 
-__Luisa Fernanda Arias Niño__  
-
 __María Juliana Soto__  
 [http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html](http://noisradio.blogspot.com.co/ // http://unradio.unal.edu.co/nc/detalle/cat/la-radia-sera.html)  
-
-__Lina Bautista__  
-[https://soundcloud.com/linalab](https://soundcloud.com/linalab)  
-
-__Luza Quiceno Quiroga__  
-Magíster en Artes Plásticas y Visuales - Artista Sonora   
-[http://luzaquiceno.wix.com/luza](http://luzaquiceno.wix.com/luza)  
-[https://soundcloud.com/user-957016126](https://soundcloud.com/user-957016126)  
-[https://vimeo.com/luzaquiceno](https://vimeo.com/luzaquiceno)  
-
-__Jaidy Diaz__  
-Artista sonora   
-[http://enlapuntadelalengu4.wixsite.com/misitio](http://enlapuntadelalengu4.wixsite.com/misitio)  
-
-__Jacqueline Ocampo Cruz__   
-[http://www.jacquelineocampocruz.com.co/](http://www.jacquelineocampocruz.com.co/)  
-
-__Juliana Ortigoza Durán__  
-Compositora   
-[https://soundcloud.com/juliana-ortigoza](https://soundcloud.com/juliana-ortigoza)  
-
-__Laura V. Zapata Cortés__  
-Compositora - Artista sonora - Improvisadora    
-[https://soundcloud.com/laura-zapata-231093157](https://soundcloud.com/laura-zapata-231093157)  
-
-__Jenny Maritza Ramírez Osorio (Jennitza)__  
-Compositora - Clarinetista - Diseñadora de sonido  
-[https://jennyramirezosorio.wixsite.com/jennitza](https://jennyramirezosorio.wixsite.com/jennitza)  
-[https://jennitza.bandcamp.com/](https://jennitza.bandcamp.com/)  
 
 __Rossana Uribe Rodríguez (Medellín)__  
 Artista audiovisual - Gestora cultural - Productora sonora  
@@ -187,11 +200,6 @@ Directora y productora del laboratorio multimedial ÉTER y de la Plataforma de E
 [https://soundcloud.com/oo_col](https://soundcloud.com/oo_col)  
 [http://eter-lab.net/es/](http://eter-lab.net/es/)  
 [http://auditum.co/](http://auditum.co/)  
-
-__Juanita Delgado Jaramillo__  
-Musico - Cantante - Compositora - Artista transdisciplinar  
-Magister en artes Vivas  
-[www.juanitadelgado.com](https://www.juanitadelgado.com/)  
 
 __Natalia Trujillo Arbeláez__  
 [https://natytrubh.wixsite.com/portafolio](https://natytrubh.wixsite.com/portafolio)  
