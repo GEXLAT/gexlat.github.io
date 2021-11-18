@@ -10,10 +10,6 @@ layout: default
 
 ## COSTA RICA  
 
-__Susan Campos Fonseca__  
-Sound artist  
-[https://soundcloud.com/susan-campos-fonseca](https://soundcloud.com/susan-campos-fonseca)  
-
 __Catalina Barrantes Granados__  
 [http://costarica.microcircuitos.org/catalina-barrantes-granados/](http://costarica.microcircuitos.org/catalina-barrantes-granados/)  
 
@@ -26,3 +22,6 @@ __Eve Chaves Cordero__
 __Rompiste Mis Flores__  
 [https://rompistemisflores.bandcamp.com/](https://rompistemisflores.bandcamp.com/)  
 [https://www.facebook.com/norompasmisflores/](https://www.facebook.com/norompasmisflores/)  
+
+__Susan Campos Fonseca__    
+[https://soundcloud.com/susan-campos-fonseca](https://soundcloud.com/susan-campos-fonseca) 
