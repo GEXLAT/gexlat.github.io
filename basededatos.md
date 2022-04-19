@@ -2,6 +2,7 @@
 layout: default
 ---
 
+[Inicio](./)
 
 ## Bases de datos
 
