@@ -11,7 +11,14 @@ Organizado por un equipo ad hoc de artistas y activistas feministas de Brasil, C
 
 Más info: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
 
-### Programación
+### Programación - Talleres y Charlas
 
 ![1](img/sonoSororos-01.jpg)
+![2](img/sonoSororos-02.jpg)
+![3](img/sonoSororos-03.jpg)
+
+### Programación - Conciertos Radiofónicos
+
+![4](img/sonoSororos-04.jpg)
+![5](img/sonoSororos-05.jpg)
 
