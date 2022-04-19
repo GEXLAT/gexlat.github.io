@@ -15,7 +15,7 @@ Ver programación en línea: [YouTube: CASo - Centro de Arte Sonoro](https://www
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
 
-Info e enscripciones a talleres [aquí](#INSCRIPCIONES-PARA-TALLERES)
+Info e enscripciones a talleres [aquí](#TALLERES)
 
 
 ### Programación - Talleres y Charlas
@@ -30,7 +30,7 @@ Info e enscripciones a talleres [aquí](#INSCRIPCIONES-PARA-TALLERES)
 ![5](img/sonoSororos-05.jpg)
 
 
-### INSCRIPCIONES PARA TALLERES 
+### TALLERES 
 
 #### Paseo sonoro
 *Miércoles 20 de abril - 14 hs (Argentina)*  
