@@ -2,6 +2,8 @@
 layout: default
 ---
 
+[Inicio](./)
+
 # Bases de datos
 ## Tecnofeminismos desde el Sur
 
@@ -22,3 +24,5 @@ Más info: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonor
 ![4](img/sonoSororos-04.jpg)
 ![5](img/sonoSororos-05.jpg)
 
+
+[Inicio](./)
