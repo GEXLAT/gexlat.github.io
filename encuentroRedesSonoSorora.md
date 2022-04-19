@@ -15,7 +15,7 @@ Ver programación en línea: [YouTube: CASo - Centro de Arte Sonoro](https://www
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
 
-Info e enscripciones a talleres [aquí](#TALLERES)
+__↓↓↓Info e enscripciones a talleres después de programación↓↓↓__
 
 
 ### Programación - Talleres y Charlas
