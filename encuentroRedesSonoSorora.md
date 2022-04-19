@@ -54,4 +54,32 @@ Ver actividades: [CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/
 [https://forms.gle/pQpfWMSNvjTTsai87](https://forms.gle/pQpfWMSNvjTTsai87)  
 
 
+## Organizadoras
+
+### GEXLAT (Género Experimentación Latinoamérica)
+
+### MUSEXPLAT 
+
+Es una plataforma que inició sus actividades en 2018, cuyo principal objetivo es conectar creadores, gestores y comunicadores de Música Experimental en Latinoamérica. Hacer Música Experimental no solo significa buscar nuevas sonoridades y técnicas de producción musical innovadoras; Música Experimental también implica dar espacio a todas aquellas propuestas que han sido invisibilizadas por diversas razones en el pasado. Musexplat busca una escena solidaria, para que todas las personas involucradas sean agentes de cambio.  
+
+[https://musexplat.com](https://musexplat.com) 
+
+
+### Plataforma Feminista En Tiempo Real
+
+La Plataforma Feminista En Tiempo Real, con sede en Bogotá, Colombia, se concibe como un espacio que le da la bienvenida a propuestas en donde el sonido se imagina desde múltiples naturalezas y se construye en amplias perspectivas, por ello se abre a propuestas cuyas indagaciones se manifiestan en la diversidad surgida de los diálogos entre sonido y tecnología desde perspectivas experimentales y feministas.  
+
+La Plataforma Feminista En Tiempo Real está conformada por el Festival En Tiempo Real, la Escuela de Experimentación Sonora y la editorial, en todas ellas trabajamos de manera articulada con colectivas y organizaciones porque nuestra acción política es el trabajo colaborativo como apuesta para aportar al bienestar y a mejores futuros.  
+
+[https://tiemporealyladob.wordpress.com](https://tiemporealyladob.wordpress.com) 
+
+
+### Sonora – musicas e feminismos
+
+Es una red colaborativa que reúne artistas e investigadorxs interesadxs en manifestaciones feministas en el contexto de las artes. Surgió en abril de 2015 a partir de la necesidad de visibilizar y posibilitar el diálogo acerca del trabajo artístico de las mujeres. Tiene apoyo del NuSom – Núcleo de Investigaciones en Sonología de la USP. Sonora propone la creación y ocupación de espacios, la realización de investigaciones y debates, y está involucrada en actividades musicales y sonoras de distintas vertientes. Sonora es atravesada por incertidumbres, indefiniciones, reticencias, aperturas, afectividades, sensibilidades, ruidos.  
+
+[http://www.sonora.me](http://www.sonora.me) 
+
+
+
 [Inicio](./)
