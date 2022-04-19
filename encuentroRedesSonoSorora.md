@@ -33,37 +33,34 @@ Info e enscripciones a talleres [aquí](#INSCRIPCIONES-PARA-TALLERES)
 ### INSCRIPCIONES PARA TALLERES 
 
 #### Paseo sonoro
-*Miércoles 20 de abril - 14 hs (Argentina)*
-Coordinadoras: Ana María Romano y Vanessa Valencia Ramos
-Duración 2 hs
-Destinatarixs: participantes del Encuentro. Cupo máximo 15 personas
+*Miércoles 20 de abril - 14 hs (Argentina)*  
+Coordinadoras: Ana María Romano y Vanessa Valencia Ramos  
+Duración 2 hs  
+Destinatarixs: participantes del Encuentro. Cupo máximo 15 personas  
 [Descripción completa y formulario](https://forms.gle/pxGJSYWK1kPwe3yc6)  
 
 #### Programación de actividades colaborativas en redes colectivas
-*Jueves 21 de abril - 14 hs (Argentina)*
-Coordinadora: Vanessa de Michelis
-Duración 1 hs
-Destinatarixs: participantes de colectivas y redes que participen en el Encuentro y/o personas que estén dispuestas a trabajar en grupo en el taller.
+*Jueves 21 de abril - 14 hs (Argentina)*  
+Coordinadora: Vanessa de Michelis  
+Duración 1 hs  
+Destinatarixs: participantes de colectivas y redes que participen en el Encuentro y/o personas que estén dispuestas a trabajar en grupo en el taller  
 [Descripción completa y formulario](https://forms.gle/Qh3ta4R5Uxcs3xw87)  
 
 #### Cómo hackear el patriarcado en el lenguaje
-*Viernes 22 de abril - 14 hs (Argentina)*
-Coordinadoras: Espacio Sonororo
-Duración 2 hs
-Destinatarixs: Cualquier persona… porque todas usamos el lenguaje todo el tiempo. Aforo máximo 60 personas.
+*Viernes 22 de abril - 14 hs (Argentina)*  
+Coordinadoras: Espacio Sonororo  
+Duración 2 hs  
+Destinatarixs: Cualquier persona… porque todas usamos el lenguaje todo el tiempo. Aforo máximo 60 personas  
 [Descripción completa y formulario](https://forms.gle/7VSt5KfSjb7hdcFs8)  
 
 #### INTIMAL EXPANSIVA: Conectemos la escucha migrante con nuestros móviles
-*Viernes 22 de abril - 17 hs (Argentina)*
-Coordinadoras: Ximena Alarcón, Myriam Ojeda, Silvia Villalba de Colectivo INTIMAL
-Duración 1:30 hs
-Destinatarixs: 12 mujeres representantes de colectivas o redes feministas de Latinoamérica 
+*Viernes 22 de abril - 17 hs (Argentina)*  
+Coordinadoras: Ximena Alarcón, Myriam Ojeda, Silvia Villalba de Colectivo INTIMAL  
+Duración 1:30 hs  
+Destinatarixs: 12 mujeres representantes de colectivas o redes feministas de Latinoamérica   
 [Descripción completa y formulario](https://forms.gle/pQpfWMSNvjTTsai87)  
 
    
-  
-   
-
 ## Organizadoras
 
 ### GEXLAT (Género Experimentación Latinoamérica)
