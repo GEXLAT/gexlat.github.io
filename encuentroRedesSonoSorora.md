@@ -13,6 +13,9 @@ Organizado por un equipo ad hoc de artistas y activistas feministas de Brasil, C
 
 Ver actividades: [CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/UCIFc-X-Xz4RsNEzuA4P-EMA)  
 
+Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
+
+
 ### Programación - Talleres y Charlas
 
 ![1](img/sonoSororos-01.jpg)
@@ -23,6 +26,7 @@ Ver actividades: [CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/
 
 ![4](img/sonoSororos-04.jpg)
 ![5](img/sonoSororos-05.jpg)
+
 
 ### INSCRIPCIONES PARA TALLERES 
 𝐏𝐚𝐬𝐞𝐨 𝐬𝐨𝐧𝐨𝐫𝐨  
