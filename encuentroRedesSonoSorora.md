@@ -11,11 +11,11 @@ Encuentro virtual internacional que se realizará el 20, 21 y 22 de abril de 202
 
 Organizado por un equipo ad hoc de artistas y activistas feministas de Brasil, Colombia, Ecuador, México y Argentina; el encuentro está pensado para que las colectivas participantes se conozcan entre sí, compartan modos de hacer y problemáticas específicas y que se generen vínculos entre ellas con el fin de tejer nuevas redes y realizar colaboraciones.<br>
 
+__↓↓↓Info e enscripciones a talleres después de programación↓↓↓__  
+
 Ver programación en línea: [YouTube: CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/UCIFc-X-Xz4RsNEzuA4P-EMA)  
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
-
-__↓↓↓Info e enscripciones a talleres después de programación↓↓↓__
 
 
 ### Programación - Talleres y Charlas
