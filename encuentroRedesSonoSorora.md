@@ -4,7 +4,7 @@ layout: default
 
 [Inicio](./)
 
-# Bases de datos
+# Encuentro de redes sono-sororas latinoamericanas
 ## Tecnofeminismos desde el Sur
 
 Encuentro virtual internacional que se realizará el 20, 21 y 22 de abril de 2022 con participación de colectivas, redes, plataformas y otras acciones feministas de Latinoamérica relacionadas con el trabajo con tecnologías en los campos del arte sonoro, la música experimental e improvisada y la música contemporánea.<br>
@@ -14,6 +14,8 @@ Organizado por un equipo ad hoc de artistas y activistas feministas de Brasil, C
 Ver actividades: [CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/UCIFc-X-Xz4RsNEzuA4P-EMA)  
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
+
+Info e enscripciones a talleres [aquí](#INSCRIPCIONES PARA TALLERES)
 
 
 ### Programación - Talleres y Charlas
