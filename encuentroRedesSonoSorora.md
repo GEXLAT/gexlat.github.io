@@ -15,7 +15,7 @@ Ver actividades: [CASo - Centro de Arte Sonoro](https://www.youtube.com/channel/
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
 
-Info e enscripciones a talleres [aquí](#INSCRIPCIONES PARA TALLERES)
+Info e enscripciones a talleres [aquí](#INSCRIPCIONES-PARA-TALLERES)
 
 
 ### Programación - Talleres y Charlas
