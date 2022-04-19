@@ -13,3 +13,5 @@ Más info: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonor
 
 ### Programación
 
+![](/img/2022.04. Encuentro sono sororos_jornadas completas-01.jpg "")
+
