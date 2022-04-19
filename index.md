@@ -8,7 +8,9 @@ Sus objetivos son: 1) generar un recurso para docentes, investigadorxs, programa
 
 La base de datos tiene una **licencia abierta** (GNU) con el fin de que cualquiera pueda utilizar, modificar y compartir la información que hay en ella libremente.
 
-[Acceder a la base de datos](./basededatos.html)   
+[Acceder a la base de datos](./basededatos.html)  
+
+[Acceder a Encuentro de redes sono-sororas latinoamericanas](./encuentroRedesSonoSorora.html)  
 
 ### Cómo agregar nombres o sugerir correcciones
 
