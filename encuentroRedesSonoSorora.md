@@ -15,7 +15,7 @@ Organizado por un equipo ad hoc de artistas y activistas feministas de Brasil, C
 
 Más informacion: [https://centrodeartesonoro.cultura.gob.ar](https://centrodeartesonoro.cultura.gob.ar)  
 
-__↓↓↓Info e enscripciones a talleres después de programación↓↓↓__  
+<span style="color:green">__↓↓↓Info e enscripciones a talleres después de programación↓↓↓__</span> 
 
 
 ### Programación - Talleres y Charlas
