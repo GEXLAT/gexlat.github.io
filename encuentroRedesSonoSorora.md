@@ -60,8 +60,9 @@ Duración 1:30 hs
 Destinatarixs: 12 mujeres representantes de colectivas o redes feministas de Latinoamérica 
 [Descripción completa y formulario](https://forms.gle/pQpfWMSNvjTTsai87)  
 
-"-----"   
-
+   
+  
+   
 
 ## Organizadoras
 
