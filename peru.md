@@ -29,10 +29,9 @@ __Paola Torres Nuñez del Prado__
 [https://www.facebook.com/autodios](https://www.facebook.com/autodios)  
 
 __Ale Borea__  
-[https://www.facebook.com/ale.borea](https://www.facebook.com/ale.borea)  
-[https://www.facebook.com/todalamiel/](https://www.facebook.com/todalamiel/)  
-[https://open.spotify.com/artist/6tJhAL4X79euRpVm9RtlGV](https://open.spotify.com/artist/6tJhAL4X79euRpVm9RtlGV)  
-[https://buhoermitano.bandcamp.com/](https://buhoermitano.bandcamp.com/)  
+Investigadora - artista sonora - percusionista
+[https://soundcloud.com/aborea](https://soundcloud.com/aborea)
+[https://aleborea.bandcamp.com/](https://aleborea.bandcamp.com/)
 
 __Yume Station__  
 [https://soundcloud.com/yumestation](https://soundcloud.com/yumestation)  
