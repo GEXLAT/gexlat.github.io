@@ -6,7 +6,7 @@ layout: default
 
 ## Bases de datos
 
-### [Argentina](./argentna.html)
+### [Argentina](./argentina.html)
 
 ### [Bolivia](./bolivia.html)
 
